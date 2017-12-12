@@ -1,6 +1,6 @@
-#KDMteam_Gei_Data
-#Đây là kho link yuri vietsub của Kodomo Team - こども
-#Đề nghị không copy, đem ra khỏi group dù chỉ là một chap nhỏ
+#KDMteam_Gei_Data </br>
+#Đây là kho link yuri vietsub của Kodomo Team - こども </br>
+#Đề nghị không copy, đem ra khỏi group dù chỉ là một chap nhỏ </br>
 
 #Another face of Roomate
 01: <a href="https://imgur.com/a/Vapog" target="_blank" rel="nofollow"></a> </br>
