@@ -3,7 +3,7 @@
 #Đề nghị không copy, đem ra khỏi group dù chỉ là một chap nhỏ </br>
 
 #Another face of Roomate
-<a href="https://imgur.com/a/Vapog" target="_blank" rel="nofollow"> 01</a> </br>
+01: https://imgur.com/a/Vapog </br>
 02: https://imgur.com/a/ICJAH </br>
 03: https://imgur.com/a/8tr59 </br>
 04: https://imgur.com/a/cWpnu </br>
