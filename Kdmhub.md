@@ -2,7 +2,7 @@
 <h1>Đây là kho link yuri vietsub của Kodomo Team - こども </h1>
 <h1>Đề nghị không copy, đem ra khỏi group dù chỉ là một chap nhỏ </h1>
 </hr>
-<h1> Another face of Roomate </h1>
+<h2> Another face of Roomate </h2>
 01: https://imgur.com/a/Vapog </br>
 02: https://imgur.com/a/ICJAH </br>
 03: https://imgur.com/a/8tr59 </br>
