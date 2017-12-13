@@ -453,7 +453,8 @@ Extra 3(dịch từ bản hàn):  https://imgur.com/a/PauDv</br>
 12: https://imgur.com/a/HDxrv</br>
 13: https://imgur.com/a/6id9f</br>
 14: https://imgur.com/a/BIGKB</br>
-15: https://imgur.com/a/R175s
+15: https://imgur.com/a/R175s</br>
+16: https://imgur.com/a/2Btq6 </br>
 Từ đây bắt đầu làm từ chap 25, các chap thiếu sẽ làm sau để các bạn không phải đợi lâu, dù gì bên ngoài cũng có nhóm dịch tới chap 24 trước rồi</br>
 25: https://imgur.com/a/kGeZ8</br>
 26:  https://imgur.com/a/nrSIA</br>
