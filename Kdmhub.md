@@ -286,6 +286,8 @@ Lời 65 + 66: https://imgur.com/a/7rEWv</br>
 Lời 67 + 68: https://imgur.com/a/TuIlb</br>
 Lời 69 + 70: https://imgur.com/a/MFaNe</br>
 Lời 71 + 72: https://imgur.com/a/FmFWP</br>
+Lời 73 + 74: https://imgur.com/a/TKZH4</br>
+Lời 75 + 76: https://imgur.com/a/JfytB </br>
 <h2>Maison de Maid</h2>
 01: http://pastehtml.com/view/hsh83q3mc.rtxt</br>
 02: http://pastehtml.com/view/hsh87j9w4.rtxt</br>
