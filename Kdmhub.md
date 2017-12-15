@@ -3,7 +3,6 @@
 <h2>Hướng dẫn tìm truyện nhanh:
 Tên truyện được xếp theo thứ tự bản chữ cái, trên máy tính có thể dùng dùng Ctrl + F rồi gõ tên truyện vào để máy tự dẫn đường đến, còn trên phone thì sẽ được update sau. </br>
 Khi chọn chap: trên PC click chuột phải rồi chọn open in new tab/mở liên kết trong tab mới, còn ở phone thì nhấn giữ link rồi chọn mở bằng tab mới. Như vậy sẽ tiết kiệm thời gian load lại trang này.</h2>
-</hr>
 <h2> Another face of Roomate </h2>
 01: https://imgur.com/a/Vapog </br>
 02: https://imgur.com/a/ICJAH </br>
@@ -19,7 +18,6 @@ Khi chọn chap: trên PC click chuột phải rồi chọn open in new tab/mở
 12: https://imgur.com/a/vleKl </br>
 13: https://imgur.com/a/XFZYG </br>
 14: https://imgur.com/a/cOmIb </br>
-</hr>
 <h2> Blooming Sequence </h2>
 01: https://imgur.com/a/nRwyE </br>
 02: https://imgur.com/a/SGZmw </br>
@@ -45,11 +43,10 @@ Khi chọn chap: trên PC click chuột phải rồi chọn open in new tab/mở
 22: https://imgur.com/a/y7r0G </br>
 23: https://imgur.com/a/rnU5r </br>
 24: https://imgur.com/a/iOB5p </br>
-</hr>
+25: https://imgur.com/a/gwMrV </br>
 <h2>Bombingsu</h2>
 01: https://imgur.com/a/u5RU5 </br>
 02: https://imgur.com/a/3CK6G </br>
-</hr>
 <h2>Cạm bẫy giả tạo (TV series)</h2>
 PV 01:  https://goo.gl/yqMaeY </br>
 PV 02:  https://goo.gl/LV5moE </br>
@@ -77,7 +74,6 @@ Ep 07:  https://goo.gl/JLdZUB (1080p)</br>
 13: https://imgur.com/a/veXdF </br>
 14: https://imgur.com/a/FCLmE </br>
 15: https://imgur.com/a/euZiC </br>
-</hr>
 <h2>百合公寓 - Chung cư bách hợp</h2>
 01: http://imgur.com/a/cSarD </br>
 02: http://imgur.com/a/f61Fc </br>
