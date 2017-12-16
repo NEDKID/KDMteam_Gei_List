@@ -74,6 +74,8 @@ Ep 07:  https://goo.gl/JLdZUB (1080p)</br>
 13: https://imgur.com/a/veXdF </br>
 14: https://imgur.com/a/FCLmE </br>
 15: https://imgur.com/a/euZiC </br>
+16: https://imgur.com/a/Ti9cq </br>
+17: https://imgur.com/a/290BE </br>
 <h2>百合公寓 - Chung cư bách hợp</h2>
 01: http://imgur.com/a/cSarD </br>
 02: http://imgur.com/a/f61Fc </br>
@@ -153,9 +155,9 @@ http://pastehtml.com/view/huglnjmbs.rtxt</br>
 06: https://imgur.com/a/YLJNR</br>
 07: https://imgur.com/a/6M5ip</br>
 08: https://imgur.com/a/zPNd8</br>
-09:  https://imgur.com/a/53yMa </br>
+09: https://imgur.com/a/53yMa </br>
 <h2>骨の髄まで愛す- Yêu đến tận xương tủy</h2>
-01:   https://imgur.com/a/CzRdE </br>
+01: https://imgur.com/a/CzRdE </br>
 <h2>네가 없었으면 좋겠어- It’d be great if you didn’t exist</h2>
 00: http://imgur.com/a/Nu3Wt</br>
 01: http://imgur.com/a/bnIhU</br>
