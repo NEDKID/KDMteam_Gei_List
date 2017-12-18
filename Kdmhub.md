@@ -288,6 +288,8 @@ Lời 73 + 74: https://imgur.com/a/TKZH4</br>
 Lời 75 + 76: https://imgur.com/a/JfytB </br>
 Lời 77 + 78: https://imgur.com/a/ADKs2 </br>
 Lời 79 + 80: https://imgur.com/a/OaFiF</br>
+Lời 81 + 82: https://imgur.com/a/GPSgD </br>
+Lời 83 + 84: https://imgur.com/a/fjA3V </br>
 <h2>Maison de Maid</h2>
 01: http://pastehtml.com/view/hsh83q3mc.rtxt</br>
 02: http://pastehtml.com/view/hsh87j9w4.rtxt</br>
@@ -314,6 +316,8 @@ Lời 79 + 80: https://imgur.com/a/OaFiF</br>
 23: https://imgur.com/a/Rr4qI</br>
 24: https://imgur.com/a/lOJI1</br>
 25: https://imgur.com/a/hbuP7</br>
+26: https://imgur.com/a/978lt </br>
+27: https://imgur.com/a/UwzsY >/br>
 <h2>My Girlfriend's Ex Boyfriend</h2>
 01: http://pastehtml.com/view/hu4u2gxeg.rtxt</br>
 02: http://pastehtml.com/view/hu4u86h3c.rtxt</br>
@@ -340,6 +344,7 @@ http://pastehtml.com/view/hu4tci7pk.rtxt</br>
 05: https://imgur.com/a/CHyMD</br>
 06: https://imgur.com/a/4V29r</br>
 07: https://imgur.com/a/QsMlO</br>
+08: https://imgur.com/a/nnrCa </br>
 <h2>온 어 리시 - ON A LEASH</h2>
 01: http://imgur.com/a/l4vag</br>
 02: https://imgur.com/a/5O0KS</br>
