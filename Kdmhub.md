@@ -19,6 +19,7 @@ Khi chọn chap: trên PC click chuột phải rồi chọn open in new tab/mở
 13: https://imgur.com/a/XFZYG </br>
 14: https://imgur.com/a/cOmIb </br>
 15: https://imgur.com/a/AP74R </br>
+16: https://imgur.com/a/ZICKC </br>
 <h2> Blooming Sequence </h2>
 01: https://imgur.com/a/nRwyE </br>
 02: https://imgur.com/a/SGZmw </br>
@@ -291,6 +292,7 @@ Lời 77 + 78: https://imgur.com/a/ADKs2 </br>
 Lời 79 + 80: https://imgur.com/a/OaFiF</br>
 Lời 81 + 82: https://imgur.com/a/GPSgD </br>
 Lời 83 + 84: https://imgur.com/a/fjA3V </br>
+Lời 85 + 86: https://imgur.com/a/gOHJP </br>
 <h2>Maison de Maid</h2>
 01: http://pastehtml.com/view/hsh83q3mc.rtxt</br>
 02: http://pastehtml.com/view/hsh87j9w4.rtxt</br>
