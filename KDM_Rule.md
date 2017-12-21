@@ -1,9 +1,9 @@
 <h1>KDM_RULE</h1>
+<h1>Đây là group bí mật do kodomo team tụi mình lập để phòng hờ lở page chính bị rip</h1>
 <h2> TRẺ TRÂU NGHIỆN XXX</h2>
 Vào cái động này rồi thì cả lũ đều như nhau</br>
 You are now kodomo, we are now kodomo, kodomo everywhere ~~~</br>
 P/s: lầy lội cũng là 1 phần của kodomo</br>
-<h1>Đây là group bí mật do kodomo team tụi mình lập để phòng hờ lở page chính bị rip</h1>
 <h1>NỘI QUY</h1>
 1. Ở đây các bạn có thể giao lưu với các admin tùy thích</br>
 2. Không đem link truyện của team từ group ra ngoài để giúp team tránh bị lezhin hay các thành phần khác report </br>
