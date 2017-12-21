@@ -1,5 +1,5 @@
 <h1>KDM_RULE</h1>
-<h1>Đây là group kín do kodomo team - こども tụi mình lập để phòng hờ lở page chính bị rip</h1>
+<h1>Đây là group kín do Kodomo Team - こども tụi mình lập để phòng hờ lở page chính bị rip</h1>
 <h2> TRẺ TRÂU NGHIỆN XXX</h2>
 Vào cái động này rồi thì cả lũ đều như nhau</br>
 You are now kodomo, we are now kodomo, kodomo everywhere ~~~</br>
