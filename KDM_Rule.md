@@ -16,7 +16,6 @@ P/s: lầy lội cũng là 1 phần của kodomo</br>
 9. Tuyệt đối không hối chap hay đòi hỏi, xin, kêu team làm truyện mới, truyện này, truyện nọ khác </br>
 10. Không được comment . hay bất cứ cmt nào tương tự vậy, hãy say "thank you~" để thể hiện lòng cảm kích của mình với người thực hiện chap truyện đó :3</br>
 11. Để tìm các link chap/bộ truyện do kodomo thực hiện thì vào bài ghim tìm, không đăng bài hay comment hỏi</br>
---> Đọc hết rồi thì trả lời: "Haii~,all clear"</br>
 <h1>QUYỀN LỢI</h1>
 Như mọi người thấy, group mình đặt với chế độ gia đình, thì ai vào đây cũng là thành viên của Kodomo Family </br>
 Group này của chung nên dù không phải là admin hay người làm chính thức trong team thì các member đều được phép đăng truyện của mình làm vào đây :3
@@ -24,5 +23,5 @@ Group này của chung nên dù không phải là admin hay người làm c
 - Đăng trực tiếp (nhớ cắt ảnh vì fb hiển thị bé quá, nhìn xong mù lun) </br>
 - Đăng bằng imgur như team hay làm (đó là app dành cho nhiếp ảnh gia nên mọi ảnh đăng lên đó đều giữ được chất lượng gốc) </br>
 >>>CHÚC CÁC ĐỒNG RÂM CÓ NHỮNG GIÂY PHÚT VUI VẺ, THOẢI MÁI TRONG FAMILY </br>
-
+#Đọc hết rồi thì trả lời: "Haii~,all clear"</br>
 <h1>Link page: https://www.facebook.com/Kodomoteamforall/</h1>
