@@ -295,6 +295,7 @@ Lời 83 + 84: https://imgur.com/a/fjA3V </br>
 Lời 85 + 86: https://imgur.com/a/gOHJP </br>
 Lời 87 + 88: https://imgur.com/a/GDH5U</br>
 Lời 89 + 90: https://imgur.com/a/57Dqt</br>
+Lời 91 + 92: https://imgur.com/a/RHu50 </br>
 <h2>Maison de Maid</h2>
 01: http://pastehtml.com/view/hsh83q3mc.rtxt</br>
 02: http://pastehtml.com/view/hsh87j9w4.rtxt</br>
@@ -378,8 +379,10 @@ Extra 2 (dịch từ bản hàn):  https://imgur.com/a/6Ix9h</br>
 22: https://imgur.com/a/uKBDn</br>
 23: https://imgur.com/a/eCYZQ</br>
 Extra 3(dịch từ bản hàn):  https://imgur.com/a/PauDv</br>
+Extra 4(dịch từ bản hàn): https://imgur.com/a/vJBhP </br>
 24: https://imgur.com/a/FgynB</br>
 25: https://imgur.com/a/stOAK</br>
+Epilogue - #Season 1 After word: https://imgur.com/a/8nymK </br>
 <h2>PULSE - NHỊP ĐẬP</h2>
 00: https://imgur.com/a/48AdK</br>
 01: http://pastehtml.com/view/hsek0jnzm.rtxt </br>
@@ -468,6 +471,7 @@ Extra 3(dịch từ bản hàn):  https://imgur.com/a/PauDv</br>
 15: https://imgur.com/a/R175s</br>
 16: https://imgur.com/a/2Btq6 </br>
 17: https://imgur.com/a/gCnQq </br>
+18: https://imgur.com/a/OqmYn </br>
 Từ đây bắt đầu làm từ chap 25, các chap thiếu sẽ làm sau để các bạn không phải đợi lâu, dù gì bên ngoài cũng có nhóm dịch tới chap 24 trước rồi</br>
 25: https://imgur.com/a/kGeZ8</br>
 26:  https://imgur.com/a/nrSIA</br>
