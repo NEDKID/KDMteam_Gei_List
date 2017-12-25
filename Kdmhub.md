@@ -232,6 +232,8 @@ Extra2: http://imgur.com/a/ONgzY</br>
 64: https://imgur.com/a/s7Xvj</br>
 65: https://imgur.com/a/sumHW</br>
 66: https://imgur.com/a/aaslR</br>
+67: https://imgur.com/a/oQA7U </br>
+68: https://imgur.com/a/G18hV </br>
 <h2>Let’s study, shall we?</h2>
 01: http://imgur.com/a/VNgjm</br>
 02: http://imgur.com/a/uWL6A</br>
@@ -298,6 +300,7 @@ Lời 87 + 88: https://imgur.com/a/GDH5U</br>
 Lời 89 + 90: https://imgur.com/a/57Dqt</br>
 Lời 91 + 92: https://imgur.com/a/RHu50 </br>
 Lời 93 + 94: https://imgur.com/a/rYGGI </br>
+Lời 95 + 96: https://imgur.com/a/bfCk4 </br>
 <h2>Maison de Maid</h2>
 01: http://pastehtml.com/view/hsh83q3mc.rtxt</br>
 02: http://pastehtml.com/view/hsh87j9w4.rtxt</br>
