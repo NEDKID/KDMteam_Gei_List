@@ -329,6 +329,7 @@ Lời 95 + 96: https://imgur.com/a/bfCk4 </br>
 25: https://imgur.com/a/hbuP7</br>
 26: https://imgur.com/a/978lt </br>
 27: https://imgur.com/a/UwzsY >/br>
+28: https://imgur.com/a/81izr </br>
 <h2>My Girlfriend's Ex Boyfriend</h2>
 01: http://pastehtml.com/view/hu4u2gxeg.rtxt</br>
 02: http://pastehtml.com/view/hu4u86h3c.rtxt</br>
