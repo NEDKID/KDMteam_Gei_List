@@ -98,7 +98,7 @@ Extra 01: https://imgur.com/a/tGzMz </br>
 01: https://imgur.com/a/djNRy </br>
 02: https://imgur.com/a/xJANE</br>
 03: https://imgur.com/a/oscFn</br>
-04:  https://imgur.com/a/UESqU </br>
+04: https://imgur.com/a/UESqU </br>
 05: https://imgur.com/a/cSGZS</br>
 End: https://imgur.com/a/nUFOH</br>
 <h2>EliXir</h2>
@@ -235,6 +235,7 @@ Extra2: http://imgur.com/a/ONgzY</br>
 66: https://imgur.com/a/aaslR</br>
 67: https://imgur.com/a/oQA7U </br>
 68: https://imgur.com/a/G18hV </br>
+69: https://imgur.com/a/ry3lw </br>
 <h2>Let’s study, shall we?</h2>
 01: http://imgur.com/a/VNgjm</br>
 02: http://imgur.com/a/uWL6A</br>
@@ -318,7 +319,7 @@ Lời 95 + 96: https://imgur.com/a/bfCk4 </br>
 13: https://imgur.com/a/0lNOi</br>
 14: https://imgur.com/a/jCuAo</br>
 15: https://imgur.com/a/V8PwJ</br>
- 16: https://imgur.com/a/cB5TB </br>
+16: https://imgur.com/a/cB5TB </br>
 17: https://imgur.com/a/cIFww</br>
 18: https://imgur.com/a/mGbLI</br>
 19: https://imgur.com/a/WnoqF</br>
@@ -331,6 +332,8 @@ Lời 95 + 96: https://imgur.com/a/bfCk4 </br>
 26: https://imgur.com/a/978lt </br>
 27: https://imgur.com/a/UwzsY >/br>
 28: https://imgur.com/a/81izr </br>
+29: https://imgur.com/a/IBKGb </br>
+30: https://imgur.com/a/OdyBP </br>
 <h2>My Girlfriend's Ex Boyfriend</h2>
 01: http://pastehtml.com/view/hu4u2gxeg.rtxt</br>
 02: http://pastehtml.com/view/hu4u86h3c.rtxt</br>
@@ -483,7 +486,7 @@ Epilogue - #Season 1 After word: https://imgur.com/a/8nymK </br>
 19: https://imgur.com/a/zV3Og </br>
 Từ đây bắt đầu làm từ chap 25, các chap thiếu sẽ làm sau để các bạn không phải đợi lâu, dù gì bên ngoài cũng có nhóm dịch tới chap 24 trước rồi</br>
 25: https://imgur.com/a/kGeZ8</br>
-26:  https://imgur.com/a/nrSIA</br>
+26: https://imgur.com/a/nrSIA</br>
 27: https://imgur.com/a/wubZQ</br>
 <h2>Shunshine & Brightstar</h2>
 01 - 24: https://bagateam.wordpress.com/portfolio/vi-sao-luc-hung-dong/</br>
