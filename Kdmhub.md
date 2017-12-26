@@ -80,6 +80,7 @@ Ep 07:  https://goo.gl/JLdZUB (1080p)</br>
 15: https://imgur.com/a/euZiC </br>
 16: https://imgur.com/a/Ti9cq </br>
 17: https://imgur.com/a/290BE </br>
+18: https://imgur.com/a/BV5Dw </br>
 <h2>百合公寓 - Chung cư bách hợp</h2>
 01: http://imgur.com/a/cSarD </br>
 02: http://imgur.com/a/f61Fc </br>
@@ -92,7 +93,7 @@ Ep 07:  https://goo.gl/JLdZUB (1080p)</br>
 Extra 01: https://imgur.com/a/tGzMz </br>
 09: https://imgur.com/a/wOEWS </br>
 10: https://imgur.com/a/OMHnd </br>
-<h2>Dousei Seikatsu</h2>
+<h2>Dousei Seikatsu (tạm ngưng một thời gian)</h2>
 01: https://imgur.com/a/984T4 </br>
 <h2>エデンからの王子様 - Eden kara no ouji-sama</h2>
 01: https://imgur.com/a/djNRy </br>
@@ -160,7 +161,7 @@ http://pastehtml.com/view/huglnjmbs.rtxt</br>
 07: https://imgur.com/a/6M5ip</br>
 08: https://imgur.com/a/zPNd8</br>
 09: https://imgur.com/a/53yMa </br>
-<h2>骨の髄まで愛す- Yêu đến tận xương tủy</h2>
+<h2>骨の髄まで愛す- Yêu đến tận xương tủy (delay dài hạn vì bà boss quá lười)</h2>
 01: https://imgur.com/a/CzRdE </br>
 <h2>네가 없었으면 좋겠어- It’d be great if you didn’t exist</h2>
 00: http://imgur.com/a/Nu3Wt</br>
@@ -303,6 +304,8 @@ Lời 89 + 90: https://imgur.com/a/57Dqt</br>
 Lời 91 + 92: https://imgur.com/a/RHu50 </br>
 Lời 93 + 94: https://imgur.com/a/rYGGI </br>
 Lời 95 + 96: https://imgur.com/a/bfCk4 </br>
+Lời 97 + 98: https://imgur.com/a/o40z3 </br>
+Lời 99 + 100: https://imgur.com/a/gcNhL </br>
 <h2>Maison de Maid</h2>
 01: http://pastehtml.com/view/hsh83q3mc.rtxt</br>
 02: http://pastehtml.com/view/hsh87j9w4.rtxt</br>
