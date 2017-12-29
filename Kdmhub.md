@@ -21,6 +21,8 @@ Khi chọn chap: trên PC click chuột phải rồi chọn open in new tab/mở
 15: https://imgur.com/a/AP74R </br>
 16: https://imgur.com/a/ZICKC </br>
 17: https://imgur.com/a/8ePTm </br>
+18: https://imgur.com/a/UDUpA </br>
+19: https://imgur.com/a/s80Lq </br>
 <h2> Blooming Sequence </h2>
 01: https://imgur.com/a/nRwyE </br>
 02: https://imgur.com/a/SGZmw </br>
@@ -488,6 +490,7 @@ Epilogue - #Season 1 After word: https://imgur.com/a/8nymK </br>
 17: https://imgur.com/a/gCnQq </br>
 18: https://imgur.com/a/OqmYn </br>
 19: https://imgur.com/a/zV3Og </br>
+20: https://imgur.com/a/fSf2c </br>
 Từ đây bắt đầu làm từ chap 25, các chap thiếu sẽ làm sau để các bạn không phải đợi lâu, dù gì bên ngoài cũng có nhóm dịch tới chap 24 trước rồi</br>
 25: https://imgur.com/a/kGeZ8</br>
 26: https://imgur.com/a/nrSIA</br>
