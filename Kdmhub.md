@@ -340,6 +340,7 @@ Lời 99 + 100: https://imgur.com/a/gcNhL </br>
 28: https://imgur.com/a/81izr </br>
 29: https://imgur.com/a/IBKGb </br>
 30: https://imgur.com/a/OdyBP </br>
+31: https://imgur.com/a/PX3OV </br>
 <h2>My Girlfriend's Ex Boyfriend</h2>
 01: http://pastehtml.com/view/hu4u2gxeg.rtxt</br>
 02: http://pastehtml.com/view/hu4u86h3c.rtxt</br>
