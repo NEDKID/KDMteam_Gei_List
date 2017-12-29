@@ -25,5 +25,5 @@ Group này của chung nên dù không phải là admin hay người làm c
 - Đăng trực tiếp (nhớ cắt ảnh vì fb hiển thị bé quá, nhìn xong mù lun) </br>
 - Đăng bằng imgur như team hay làm (đó là app dành cho nhiếp ảnh gia nên mọi ảnh đăng lên đó đều giữ được chất lượng gốc) </br>
 >>>CHÚC CÁC ĐỒNG RÂM CÓ NHỮNG GIÂY PHÚT VUI VẺ, THOẢI MÁI TRONG FAMILY </br>
-#Đọc hết rồi thì trả lời: "Haii~,all clear"</br>
+#Đọc hết rồi thì trả lời câu 1 như sau: Haii~,all clear</br>
 <h1>Link page: https://www.facebook.com/Kodomoteamforall/</h1>
