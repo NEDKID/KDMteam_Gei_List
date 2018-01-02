@@ -308,6 +308,7 @@ Lời 93 + 94: https://imgur.com/a/rYGGI </br>
 Lời 95 + 96: https://imgur.com/a/bfCk4 </br>
 Lời 97 + 98: https://imgur.com/a/o40z3 </br>
 Lời 99 + 100: https://imgur.com/a/gcNhL </br>
+Lời 101 + 102: https://imgur.com/a/8Hq5K </br>
 <h2>Maison de Maid</h2>
 01: http://pastehtml.com/view/hsh83q3mc.rtxt</br>
 02: http://pastehtml.com/view/hsh87j9w4.rtxt</br>
@@ -368,6 +369,7 @@ http://pastehtml.com/view/hu4tci7pk.rtxt</br>
 07: https://imgur.com/a/QsMlO</br>
 08: https://imgur.com/a/nnrCa </br>
 09: https://imgur.com/a/E6Oc9 </br>
+10: https://imgur.com/a/rqfKR </br>
 <h2>온 어 리시 - ON A LEASH</h2>
 01: http://imgur.com/a/l4vag</br>
 02: https://imgur.com/a/5O0KS</br>
@@ -400,6 +402,8 @@ Extra 4(dịch từ bản hàn): https://imgur.com/a/vJBhP </br>
 24: https://imgur.com/a/FgynB</br>
 25: https://imgur.com/a/stOAK</br>
 Epilogue - #Season 1 After word: https://imgur.com/a/8nymK </br>
+26: https://imgur.com/a/94JMi </br>
+27: https://imgur.com/a/b7lYa </br>
 <h2>PULSE - NHỊP ĐẬP</h2>
 00: https://imgur.com/a/48AdK</br>
 01: http://pastehtml.com/view/hsek0jnzm.rtxt </br>
