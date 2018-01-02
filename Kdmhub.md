@@ -137,21 +137,20 @@ End: https://imgur.com/a/nUFOH</br>
 29: https://imgur.com/a/uB4Cm</br>
 30 - End SS1: https://imgur.com/a/H6Ask</br>
 <h2>Everyday Lily</h2>
-01: https://imgur.com/a/XGZMh </br>
-02: https://imgur.com/a/1D1VE</br>
-03: https://imgur.com/a/0JFhX</br>
-04: http://imgur.com/a/t3Arq </br>
-http://pastehtml.com/view/huglnjmbs.rtxt</br>
-05: https://imgur.com/a/vOzOM</br>
-06: https://imgur.com/a/gCTGe</br>
-07: https://imgur.com/a/oG9a9</br>
-08: https://imgur.com/a/p4LiM</br>
-09: https://imgur.com/a/ZCdC4</br>
-10: https://imgur.com/a/eGsLU</br>
-11: https://imgur.com/a/fZDpo</br>
-12: https://imgur.com/a/hFONY</br>
-13: https://imgur.com/a/r0Pi5</br>
-14: https://imgur.com/a/MHzi4</br>
+00: https://imgur.com/a/B4986</br>
+01: https://imgur.com/a/1D1VE</br>
+02: https://imgur.com/a/0JFhX</br>
+03: http://imgur.com/a/t3Arq </br>
+04: https://imgur.com/a/vOzOM</br>
+05: https://imgur.com/a/gCTGe</br>
+06: https://imgur.com/a/oG9a9</br>
+07: https://imgur.com/a/p4LiM</br>
+08: https://imgur.com/a/ZCdC4</br>
+09: https://imgur.com/a/eGsLU</br>
+10: https://imgur.com/a/fZDpo</br>
+11: https://imgur.com/a/hFONY</br>
+12: https://imgur.com/a/r0Pi5</br>
+13: https://imgur.com/a/MHzi4</br>
 <h2>Futatsu No Rasen</h2>
 01: https://imgur.com/a/qEt0a
 <h2>여길봐 햄뽀야!- Hamppoya!</h2>
