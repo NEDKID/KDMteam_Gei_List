@@ -7,7 +7,7 @@ You are now kodomo, we are now kodomo, kodomo everywhere ~~~</br>
 P/s: lầy lội cũng là 1 phần của kodomo</br>
 <h1>NỘI QUY</h1>
 1. Ở đây các bạn có thể giao lưu với các admin tùy thích</br>
-2. Không đem link truyện của team từ group ra ngoài để giúp team tránh bị lezhin hay các thành phần khác report </br>
+2. Không đem link truyện của team hay bất cứ hình ảnh tác chế nào thuộc sở hữu của người (admin, member) trong group ra ngoài để giúp động lẫn team tránh bị lezhin hay các thành phần khác report </br>
 3. Không đem link của nhóm khác vào group này, nhóm mình thì xài hàng nhóm mình thôi, có gì tự ib riêng cho nhau </br>
 4. Các member có thể đăng stt hỏi hay chat thoải mái, tự lập nhóm chat cho riêng cũng được </br>
 5. Không teencode dưới mọi hình thức, viết tắt thì được </br>
