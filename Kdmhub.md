@@ -137,7 +137,7 @@ End: https://imgur.com/a/nUFOH</br>
 29: https://imgur.com/a/uB4Cm</br>
 30 - End SS1: https://imgur.com/a/H6Ask</br>
 <h2>Everyday Lily</h2>
-00: https://imgur.com/a/B4986</br>
+00: https://imgur.com/a/XGZMh</br>
 01: https://imgur.com/a/1D1VE</br>
 02: https://imgur.com/a/0JFhX</br>
 03: http://imgur.com/a/t3Arq </br>
