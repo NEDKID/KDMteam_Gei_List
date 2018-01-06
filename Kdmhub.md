@@ -240,6 +240,7 @@ Extra2: http://imgur.com/a/ONgzY</br>
 67: https://imgur.com/a/oQA7U </br>
 68: https://imgur.com/a/G18hV </br>
 69: https://imgur.com/a/ry3lw </br>
+70: https://imgur.com/a/Tew5A </br>
 <h2>Let’s study, shall we?</h2>
 01: http://imgur.com/a/VNgjm</br>
 02: http://imgur.com/a/uWL6A</br>
