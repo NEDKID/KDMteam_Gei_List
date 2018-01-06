@@ -84,6 +84,7 @@ Ep 07:  https://goo.gl/JLdZUB (1080p)</br>
 16: https://imgur.com/a/Ti9cq </br>
 17: https://imgur.com/a/290BE </br>
 18: https://imgur.com/a/BV5Dw </br>
+19: https://imgur.com/a/261Sc</br>
 <h2>百合公寓 - Chung cư bách hợp</h2>
 01: http://imgur.com/a/cSarD </br>
 02: http://imgur.com/a/f61Fc </br>
@@ -309,6 +310,10 @@ Lời 95 + 96: https://imgur.com/a/bfCk4 </br>
 Lời 97 + 98: https://imgur.com/a/o40z3 </br>
 Lời 99 + 100: https://imgur.com/a/gcNhL </br>
 Lời 101 + 102: https://imgur.com/a/8Hq5K </br>
+Lời 103 + 104: https://imgur.com/a/Qlxky</br>
+Lời 105 + 106: https://imgur.com/a/jbIHk</br>
+Lời 107 + 108: https://imgur.com/a/5XiAM</br>
+Lời 109 + 110: https://imgur.com/a/VRL7g </br>
 <h2>Maison de Maid</h2>
 01: http://pastehtml.com/view/hsh83q3mc.rtxt</br>
 02: http://pastehtml.com/view/hsh87j9w4.rtxt</br>
@@ -341,6 +346,10 @@ Lời 101 + 102: https://imgur.com/a/8Hq5K </br>
 29: https://imgur.com/a/IBKGb </br>
 30: https://imgur.com/a/OdyBP </br>
 31: https://imgur.com/a/PX3OV </br>
+32: https://imgur.com/a/yHYgZ</br>
+33: https://imgur.com/a/N9XTo</br>
+34: https://imgur.com/a/gbVot</br>
+35: https://imgur.com/a/sru7O</br>
 <h2>My Girlfriend's Ex Boyfriend</h2>
 01: http://pastehtml.com/view/hu4u2gxeg.rtxt</br>
 02: http://pastehtml.com/view/hu4u86h3c.rtxt</br>
@@ -404,6 +413,8 @@ Extra 4(dịch từ bản hàn): https://imgur.com/a/vJBhP </br>
 Epilogue - #Season 1 After word: https://imgur.com/a/8nymK </br>
 26: https://imgur.com/a/94JMi </br>
 27: https://imgur.com/a/b7lYa </br>
+28: https://imgur.com/a/hpKRP</br>
+29: https://imgur.com/a/Jvrfy</br>
 <h2>PULSE - NHỊP ĐẬP</h2>
 00: https://imgur.com/a/48AdK</br>
 01: http://pastehtml.com/view/hsek0jnzm.rtxt </br>
