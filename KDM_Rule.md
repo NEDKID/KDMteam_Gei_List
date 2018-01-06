@@ -12,8 +12,8 @@ P/s: lầy lội cũng là 1 phần của kodomo</br>
 4. Các member có thể đăng stt hỏi hay chat thoải mái, tự lập nhóm chat cho riêng cũng được </br>
 5. Không teencode dưới mọi hình thức, viết tắt thì được </br>
 6. Mọi stt có chiều hướng gây war sẽ bị xóa và người gây war thì bay màu nick </br>
-7. Và đừng chơi trò ninja, xem chùa, hãy tích cực tương tác dù chỉ 1 like nhỏ </br>
-8. Không được đăng bài không liên quan đến yuri </br>
+7. Đừng chơi trò ninja, xem chùa, hãy tích cực tương tác dù chỉ 1 like nhỏ </br>
+8. Không được đăng bài không liên quan đến yuri, GL</br>
 9. Tuyệt đối không hối chap hay đòi hỏi, xin, kêu team làm truyện mới, truyện này, truyện nọ khác </br>
 10. Không được comment . hay bất cứ cmt nào tương tự vậy, hãy say "thank you~" để thể hiện lòng cảm kích của mình với người thực hiện chap truyện đó :3</br>
 11. Để tìm các link chap/bộ truyện do kodomo thực hiện thì vào bài ghim tìm, không đăng bài hay comment hỏi</br>
