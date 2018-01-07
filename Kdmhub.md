@@ -241,6 +241,7 @@ Extra2: http://imgur.com/a/ONgzY</br>
 68: https://imgur.com/a/G18hV </br>
 69: https://imgur.com/a/ry3lw </br>
 70: https://imgur.com/a/Tew5A </br>
+71: https://imgur.com/a/H660m </br>
 <h2>Let’s study, shall we?</h2>
 01: http://imgur.com/a/VNgjm</br>
 02: http://imgur.com/a/uWL6A</br>
@@ -315,6 +316,8 @@ Lời 103 + 104: https://imgur.com/a/Qlxky</br>
 Lời 105 + 106: https://imgur.com/a/jbIHk</br>
 Lời 107 + 108: https://imgur.com/a/5XiAM</br>
 Lời 109 + 110: https://imgur.com/a/VRL7g </br>
+Lời 111 + 112: https://imgur.com/a/4mVIo </br>
+Lời 113 + 114: https://imgur.com/a/IMfPw</br>
 <h2>Maison de Maid</h2>
 01: http://pastehtml.com/view/hsh83q3mc.rtxt</br>
 02: http://pastehtml.com/view/hsh87j9w4.rtxt</br>
@@ -351,6 +354,8 @@ Lời 109 + 110: https://imgur.com/a/VRL7g </br>
 33: https://imgur.com/a/N9XTo</br>
 34: https://imgur.com/a/gbVot</br>
 35: https://imgur.com/a/sru7O</br>
+36: https://imgur.com/a/lLBZC</br>
+37: https://imgur.com/a/SnUon</br>
 <h2>My Girlfriend's Ex Boyfriend</h2>
 01: http://pastehtml.com/view/hu4u2gxeg.rtxt</br>
 02: http://pastehtml.com/view/hu4u86h3c.rtxt</br>
