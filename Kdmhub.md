@@ -51,6 +51,7 @@ Khi chọn chap: trên PC click chuột phải rồi chọn open in new tab/mở
 25: https://imgur.com/a/gwMrV </br>
 26: https://imgur.com/a/gj00f </br>
 27: https://imgur.com/a/vuoyI</br>
+28: https://imgur.com/a/o0OXU</br>
 <h2>Bombingsu</h2>
 01: https://imgur.com/a/u5RU5 </br>
 02: https://imgur.com/a/3CK6G </br>
