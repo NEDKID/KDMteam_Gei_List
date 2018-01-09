@@ -54,7 +54,7 @@ Khi chọn chap: trên PC click chuột phải rồi chọn open in new tab/mở
 <h2>Bombingsu</h2>
 01: https://imgur.com/a/u5RU5 </br>
 02: https://imgur.com/a/3CK6G </br>
-<h2>Cạm bẫy giả tạo (TV series)</h2>
+<h2>Cạm bẫy giả tạo (TV series) [delay dài hạn vì bà boss quá lười]</h2>
 PV 01:  https://goo.gl/yqMaeY </br>
 PV 02:  https://goo.gl/LV5moE </br>
 Ep 01:  https://goo.gl/ZFyDTp  (1080p)</br>
@@ -320,6 +320,8 @@ Lời 109 + 110: https://imgur.com/a/VRL7g </br>
 Lời 111 + 112: https://imgur.com/a/4mVIo </br>
 Lời 113 + 114: https://imgur.com/a/IMfPw</br>
 Lời 115 + 116: https://imgur.com/a/ldXuY</br>
+Lời 117 + 118: https://imgur.com/a/DmJ6w</br>
+Lời 119 + 120: https://imgur.com/a/9etwX</br>
 <h2>Maison de Maid</h2>
 01: http://pastehtml.com/view/hsh83q3mc.rtxt</br>
 02: http://pastehtml.com/view/hsh87j9w4.rtxt</br>
@@ -360,6 +362,10 @@ Lời 115 + 116: https://imgur.com/a/ldXuY</br>
 37: https://imgur.com/a/SnUon</br>
 38: https://imgur.com/a/vRhD5</br>
 39: https://imgur.com/a/kCjk9</br>
+40: https://imgur.com/a/X3k45 </br>
+41: https://imgur.com/a/LQHMs </br>
+42: https://imgur.com/a/vzyyU </br>
+43-End: https://imgur.com/a/SrGm4 </br>
 <h2>My Girlfriend's Ex Boyfriend</h2>
 01: http://pastehtml.com/view/hu4u2gxeg.rtxt</br>
 02: http://pastehtml.com/view/hu4u86h3c.rtxt</br>
