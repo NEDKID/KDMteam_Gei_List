@@ -323,6 +323,7 @@ Lời 113 + 114: https://imgur.com/a/IMfPw</br>
 Lời 115 + 116: https://imgur.com/a/ldXuY</br>
 Lời 117 + 118: https://imgur.com/a/DmJ6w</br>
 Lời 119 + 120: https://imgur.com/a/9etwX</br>
+Lời 121 + 122: https://imgur.com/a/n3rUB </br>
 <h2>Maison de Maid</h2>
 01: http://pastehtml.com/view/hsh83q3mc.rtxt</br>
 02: http://pastehtml.com/view/hsh87j9w4.rtxt</br>
@@ -574,7 +575,7 @@ Từ đây bắt đầu làm từ chap 25, các chap thiếu sẽ làm sau để
 66: http://imgur.com/a/kD80Y</br>
 67: http://imgur.com/a/AKLCr</br>
 68: http://imgur.com/a/F0WgN</br>
-69: http://imgur.com/a/LO5Gm</br>
+69-End: http://imgur.com/a/LO5Gm</br>
 <h2>The Mistress Story</h2>
 01: http://imgur.com/a/Eh8EJ</br>
 02: http://imgur.com/a/WshiT</br>
@@ -658,3 +659,4 @@ Pocky day: http://imgur.com/a/R616V</br>
 50: https://imgur.com/a/fj2CJ </br>
 <h2>YUL-HAE'S ENDING - 율하엔딩</h2>
 01: https://imgur.com/a/MeevD </br>
+02: https://imgur.com/a/rXFw3 </br>
