@@ -349,7 +349,7 @@ Lời 119 + 120: https://imgur.com/a/9etwX</br>
 24: https://imgur.com/a/lOJI1</br>
 25: https://imgur.com/a/hbuP7</br>
 26: https://imgur.com/a/978lt </br>
-27: https://imgur.com/a/UwzsY >/br>
+27: https://imgur.com/a/UwzsY </br>
 28: https://imgur.com/a/81izr </br>
 29: https://imgur.com/a/IBKGb </br>
 30: https://imgur.com/a/OdyBP </br>
