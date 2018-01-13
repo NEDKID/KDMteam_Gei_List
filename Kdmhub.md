@@ -54,6 +54,7 @@ Khi chọn chap: trên PC click chuột phải rồi chọn open in new tab/mở
 26: https://imgur.com/a/gj00f </br>
 27: https://imgur.com/a/vuoyI</br>
 28: https://imgur.com/a/o0OXU</br>
+29: https://imgur.com/a/gtXAD</br>
 <h2>Bombingsu</h2>
 01: https://imgur.com/a/u5RU5 </br>
 02: https://imgur.com/a/3CK6G </br>
@@ -403,7 +404,8 @@ http://pastehtml.com/view/hu4tci7pk.rtxt</br>
 09: https://imgur.com/a/E6Oc9 </br>
 10: https://imgur.com/a/rqfKR </br>
 11: https://imgur.com/a/k6Hnq </br>
-<h2>온 어 리시 - ON A LEASH</h2>
+12: https://imgur.com/a/xuvaM </br>
+<h2>온 어 리시 - On a LEASH</h2>
 01: http://imgur.com/a/l4vag</br>
 02: https://imgur.com/a/5O0KS</br>
 03: https://imgur.com/a/9TsDc</br>
@@ -439,6 +441,7 @@ Epilogue - #Season 1 After word: https://imgur.com/a/8nymK </br>
 27: https://imgur.com/a/b7lYa </br>
 28: https://imgur.com/a/hpKRP</br>
 29: https://imgur.com/a/Jvrfy</br>
+30: https://imgur.com/a/UirJ7 </br>
 <h2>PULSE - NHỊP ĐẬP</h2>
 00: https://imgur.com/a/48AdK</br>
 01: http://pastehtml.com/view/hsek0jnzm.rtxt </br>
@@ -498,7 +501,7 @@ Epilogue - #Season 1 After word: https://imgur.com/a/8nymK </br>
 55: http://pastehtml.com/view/hsexfbupu.rtxt</br>
 56: http://pastehtml.com/view/hsexhlate.rtxt</br>
 57: https://imgur.com/a/PvA6l</br>
- http://pastehtml.com/view/huhzxlvb3.rtxt </br>
+http://pastehtml.com/view/huhzxlvb3.rtxt </br>
 58: https://imgur.com/a/akzzy</br>
 59: https://imgur.com/a/y4a1e</br>
 60: https://imgur.com/a/Cdw46</br>
@@ -662,6 +665,8 @@ Pocky day: http://imgur.com/a/R616V</br>
 48: https://imgur.com/a/8AA6L</br>
 49: https://imgur.com/a/ftTWv</br>
 50: https://imgur.com/a/fj2CJ </br>
+51: https://imgur.com/a/ZxMR1 </br>
 <h2>YUL-HAE'S ENDING - 율하엔딩</h2>
 01: https://imgur.com/a/MeevD </br>
 02: https://imgur.com/a/rXFw3 </br>
+03: https://imgur.com/a/Mbu5v</br>
