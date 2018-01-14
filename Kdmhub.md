@@ -335,6 +335,12 @@ Lời 131 + 132: https://imgur.com/a/SV7d9</br>
 Lời 133 + 134: https://imgur.com/a/PITIy</br>
 Lời 135 + 136: https://imgur.com/a/86pdk</br>
 Lời 137 + 138: https://imgur.com/a/E9sph </br>
+Lời 139 + 140: https://imgur.com/a/8gpta</br>
+Lời 141 + 142: https://imgur.com/a/YpFGa </br>
+Lời 143 + 144: https://imgur.com/a/UvCgo</br>
+Lời 145 + 146: https://imgur.com/a/q6dlA</br>
+Lời 147 + 148: https://imgur.com/a/hdJ6a</br>
+Lời 149 + 150: https://imgur.com/a/dut5p</br>
 <h2>Maison de Maid</h2>
 01: http://pastehtml.com/view/hsh83q3mc.rtxt</br>
 02: http://pastehtml.com/view/hsh87j9w4.rtxt</br>
@@ -447,6 +453,7 @@ Epilogue - #Season 1 After word: https://imgur.com/a/8nymK </br>
 28: https://imgur.com/a/hpKRP</br>
 29: https://imgur.com/a/Jvrfy</br>
 30: https://imgur.com/a/UirJ7 </br>
+31: https://imgur.com/a/z8QhB </br>
 <h2>PULSE - NHỊP ĐẬP</h2>
 00: https://imgur.com/a/48AdK</br>
 01: http://pastehtml.com/view/hsek0jnzm.rtxt </br>
