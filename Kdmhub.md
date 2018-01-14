@@ -330,6 +330,11 @@ Lời 121 + 122: https://imgur.com/a/n3rUB </br>
 Lời 123 + 124: https://imgur.com/a/Vofen </br>
 Lời 125 + 126: https://imgur.com/a/4nWdT </br>
 Lời 127 + 128:https://imgur.com/a/VQwVC </br>
+Lời 129 + 130: https://imgur.com/a/kk9yC </br>
+Lời 131 + 132: https://imgur.com/a/SV7d9</br>
+Lời 133 + 134: https://imgur.com/a/PITIy</br>
+Lời 135 + 136: https://imgur.com/a/86pdk</br>
+Lời 137 + 138: https://imgur.com/a/E9sph </br>
 <h2>Maison de Maid</h2>
 01: http://pastehtml.com/view/hsh83q3mc.rtxt</br>
 02: http://pastehtml.com/view/hsh87j9w4.rtxt</br>
