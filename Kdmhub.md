@@ -25,6 +25,7 @@ Khi chọn chap: trên PC click chuột phải rồi chọn open in new tab/mở
 19: https://imgur.com/a/s80Lq </br>
 20: https://imgur.com/a/fI3CI</br>
 21: https://imgur.com/a/vSy02</br>
+22: https://imgur.com/a/0HZvx </br>
 <h2> Blooming Sequence </h2>
 01: https://imgur.com/a/nRwyE </br>
 02: https://imgur.com/a/SGZmw </br>
@@ -416,6 +417,7 @@ http://pastehtml.com/view/hu4tci7pk.rtxt</br>
 10: https://imgur.com/a/rqfKR </br>
 11: https://imgur.com/a/k6Hnq </br>
 12: https://imgur.com/a/xuvaM </br>
+13: https://imgur.com/a/CrXgJ </br>
 <h2>온 어 리시 - On a LEASH</h2>
 01: http://imgur.com/a/l4vag</br>
 02: https://imgur.com/a/5O0KS</br>
