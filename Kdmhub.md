@@ -458,6 +458,8 @@ Epilogue - #Season 1 After word: https://imgur.com/a/8nymK </br>
 29: https://imgur.com/a/Jvrfy</br>
 30: https://imgur.com/a/UirJ7 </br>
 31: https://imgur.com/a/z8QhB </br>
+32: https://imgur.com/a/QOLpd </br>
+33-End SS1: https://imgur.com/a/zVktf</br>
 <h2>PULSE - NHỊP ĐẬP</h2>
 00: https://imgur.com/a/48AdK</br>
 01: http://pastehtml.com/view/hsek0jnzm.rtxt </br>
@@ -682,6 +684,7 @@ Pocky day: http://imgur.com/a/R616V</br>
 49: https://imgur.com/a/ftTWv</br>
 50: https://imgur.com/a/fj2CJ </br>
 51: https://imgur.com/a/ZxMR1 </br>
+52: https://imgur.com/a/uPaYB</br>
 <h2>YUL-HAE'S ENDING - 율하엔딩</h2>
 01: https://imgur.com/a/MeevD </br>
 02: https://imgur.com/a/rXFw3 </br>
