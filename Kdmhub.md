@@ -26,6 +26,7 @@ Khi chọn chap: trên PC click chuột phải rồi chọn open in new tab/mở
 20: https://imgur.com/a/fI3CI</br>
 21: https://imgur.com/a/vSy02</br>
 22: https://imgur.com/a/0HZvx </br>
+23: https://imgur.com/a/f1YQ8 </br>
 <h2> Blooming Sequence </h2>
 01: https://imgur.com/a/nRwyE </br>
 02: https://imgur.com/a/SGZmw </br>
