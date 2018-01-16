@@ -91,6 +91,7 @@ Ep 07:  https://goo.gl/JLdZUB (1080p)</br>
 17: https://imgur.com/a/290BE </br>
 18: https://imgur.com/a/BV5Dw </br>
 19: https://imgur.com/a/261Sc</br>
+20-End SS1: https://imgur.com/a/mlj5O</br>
 <h2>百合公寓 - Chung cư bách hợp</h2>
 01: http://imgur.com/a/cSarD </br>
 02: http://imgur.com/a/f61Fc </br>
@@ -482,7 +483,7 @@ Epilogue - #Season 1 After word: https://imgur.com/a/8nymK </br>
 21: http://pastehtml.com/view/hsesj1ehu.rtxt</br>
 22: http://pastehtml.com/view/hsesen0c2.rtxt</br>
 23: http://pastehtml.com/view/hseszetmq.rtxt</br>
-24: http://pastehtml.com/view/hseszetmq.rtxt</br>
+24: sẽ update lại sau vì trùng chap 23</br>
 25: http://pastehtml.com/view/hset650rm.rtxt</br>
 26: http://pastehtml.com/view/hsetij1v6.rtxt</br>
 27: http://pastehtml.com/view/hseubl06q.rtxt</br>
