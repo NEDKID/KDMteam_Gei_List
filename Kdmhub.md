@@ -3,6 +3,8 @@
 <h2>Hướng dẫn tìm truyện nhanh:
 Tên truyện được xếp theo thứ tự bản chữ cái, trên máy tính có thể dùng dùng Ctrl + F rồi gõ tên truyện vào để máy tự dẫn đường đến, còn trên phone thì sẽ được update sau. </br>
 Khi chọn chap: trên PC click chuột phải rồi chọn open in new tab/mở liên kết trong tab mới, còn ở phone thì nhấn giữ link rồi chọn mở bằng tab mới. Như vậy sẽ tiết kiệm thời gian load lại trang này.</h2>
+<h2>2 Birds in Spring</h2>
+01: https://imgur.com/a/7YHJO </be>
 <h2> Another face of Roomate </h2>
 01: https://imgur.com/a/Vapog </br>
 02: https://imgur.com/a/ICJAH </br>
@@ -57,6 +59,7 @@ Khi chọn chap: trên PC click chuột phải rồi chọn open in new tab/mở
 27: https://imgur.com/a/vuoyI</br>
 28: https://imgur.com/a/o0OXU</br>
 29: https://imgur.com/a/gtXAD</br>
+30: https://imgur.com/a/IogZ6>/br?
 <h2>Bombingsu</h2>
 01: https://imgur.com/a/u5RU5 </br>
 02: https://imgur.com/a/3CK6G </br>
@@ -344,6 +347,16 @@ Lời 143 + 144: https://imgur.com/a/UvCgo</br>
 Lời 145 + 146: https://imgur.com/a/q6dlA</br>
 Lời 147 + 148: https://imgur.com/a/hdJ6a</br>
 Lời 149 + 150: https://imgur.com/a/dut5p</br>
+Lời 151 + 152: https://imgur.com/a/HQd0b</br>
+Lời 153 + 154: https://imgur.com/a/bpgHd</br>
+Lời 155 + 156: https://imgur.com/a/H3PiC</br>
+Lời 157 + 158: https://imgur.com/a/E1TJ4</br>
+Lời 159 + 160: https://imgur.com/a/2FfSu</br>
+Lời 161 + 162: https://imgur.com/a/6NSdT</br>
+Lời 163 + 164: https://imgur.com/a/URY0J</br>
+Lời 165 + 166: https://imgur.com/a/sAC7N</br>
+Lời 167 + 168: https://imgur.com/a/Z6Y3s</br>
+Lòi 169 + 170: https://imgur.com/a/KpkIF</br>
 <h2>Maison de Maid</h2>
 01: http://pastehtml.com/view/hsh83q3mc.rtxt</br>
 02: http://pastehtml.com/view/hsh87j9w4.rtxt</br>
@@ -685,6 +698,7 @@ Pocky day: http://imgur.com/a/R616V</br>
 50: https://imgur.com/a/fj2CJ </br>
 51: https://imgur.com/a/ZxMR1 </br>
 52: https://imgur.com/a/uPaYB</br>
+53: https://imgur.com/a/aIA4c</br>
 <h2>YUL-HAE'S ENDING - 율하엔딩</h2>
 01: https://imgur.com/a/MeevD </br>
 02: https://imgur.com/a/rXFw3 </br>
