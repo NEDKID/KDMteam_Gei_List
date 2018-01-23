@@ -269,6 +269,7 @@ Extra2: http://imgur.com/a/ONgzY</br>
 13: http://imgur.com/a/wTpxi</br>
 14: http://imgur.com/a/3Okfe</br>
 15: http://imgur.com/a/BmRI2</br>
+<h2>Lilith - 릴리트</h2>
 <h2>Lily漫画 - Lily Manhua</h2>
 01+02: https://imgur.com/a/XIV6I</br>
 03 + COS: https://imgur.com/a/l9cQI</br>
@@ -473,6 +474,7 @@ Epilogue - #Season 1 After word: https://imgur.com/a/8nymK </br>
 31: https://imgur.com/a/z8QhB </br>
 32: https://imgur.com/a/QOLpd </br>
 33-End SS1: https://imgur.com/a/zVktf</br>
+<h2>Partition - 파티션</h2>
 <h2>PULSE - NHỊP ĐẬP</h2>
 00: https://imgur.com/a/48AdK</br>
 01: http://pastehtml.com/view/hsek0jnzm.rtxt </br>
