@@ -60,7 +60,8 @@ Khi chọn chap: trên PC click chuột phải rồi chọn open in new tab/mở
 27: https://imgur.com/a/vuoyI</br>
 28: https://imgur.com/a/o0OXU</br>
 29: https://imgur.com/a/gtXAD</br>
-30: https://imgur.com/a/IogZ6>/br?
+30: https://imgur.com/a/IogZ6</br>
+31-End SS1: https://imgur.com/a/XYN3z</br>
 <h2>Bombingsu</h2>
 01: https://imgur.com/a/u5RU5 </br>
 02: https://imgur.com/a/3CK6G </br>
@@ -440,6 +441,7 @@ http://pastehtml.com/view/hu4tci7pk.rtxt</br>
 11: https://imgur.com/a/k6Hnq </br>
 12: https://imgur.com/a/xuvaM </br>
 13: https://imgur.com/a/CrXgJ </br>
+14: https://imgur.com/a/XSmnt </br>
 <h2>온 어 리시 - On a LEASH</h2>
 01: http://imgur.com/a/l4vag</br>
 02: https://imgur.com/a/5O0KS</br>
