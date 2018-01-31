@@ -256,6 +256,7 @@ Extra2: http://imgur.com/a/ONgzY</br>
 71: https://imgur.com/a/H660m </br>
 72: https://imgur.com/a/nvtsZ</br>
 73: https://imgur.com/a/DZO3w</br>
+74: https://imgur.com/a/DZO3w </br>
 <h2>Let’s study, shall we?</h2>
 01: http://imgur.com/a/VNgjm</br>
 02: http://imgur.com/a/uWL6A</br>
@@ -493,7 +494,10 @@ Epilogue - #Season 1 After word: https://imgur.com/a/8nymK </br>
 31: https://imgur.com/a/z8QhB </br>
 32: https://imgur.com/a/QOLpd </br>
 33-End SS1: https://imgur.com/a/zVktf</br>
+34-SS2: https://imgur.com/a/Nyafo</br>
 <h2>Partition - 파티션</h2>
+00: https://imgur.com/a/gUpw0 </br>
+01: https://imgur.com/a/z9hNE </br>
 <h2>PULSE - NHỊP ĐẬP</h2>
 00: https://imgur.com/a/48AdK</br>
 01: http://pastehtml.com/view/hsek0jnzm.rtxt </br>
@@ -720,6 +724,7 @@ Pocky day: http://imgur.com/a/R616V</br>
 51: https://imgur.com/a/ZxMR1 </br>
 52: https://imgur.com/a/uPaYB</br>
 53: https://imgur.com/a/aIA4c</br>
+54: https://imgur.com/a/sbLQl </br>
 <h2>YUL-HAE'S ENDING - 율하엔딩</h2>
 01: https://imgur.com/a/MeevD </br>
 02: https://imgur.com/a/rXFw3 </br>
