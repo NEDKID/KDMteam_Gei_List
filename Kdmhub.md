@@ -215,8 +215,8 @@ Extra1: http://imgur.com/a/Djhzj</br>
 32: http://imgur.com/a/IWUhG</br>
 33: http://imgur.com/a/g14RO</br>
 34: http://imgur.com/a/1RhyC</br>
-35: http://imgur.com/a/FFwyO</br>
-36: http://imgur.com/a/FFwyO</br>
+35: https://imgur.com/a/FFwyO</br>
+36: https://imgur.com/a/pOSyu</br>
 37: http://imgur.com/a/IqnTu</br>
 38: http://imgur.com/a/OU2ra</br>
 39: https://imgur.com/a/pDAFj</br>
@@ -255,7 +255,7 @@ Extra2: http://imgur.com/a/ONgzY</br>
 70: https://imgur.com/a/Tew5A </br>
 71: https://imgur.com/a/H660m </br>
 72: https://imgur.com/a/nvtsZ</br>
-73: https://imgur.com/a/DZO3w</br>
+73: https://imgur.com/a/kIoaR</br>
 74: https://imgur.com/a/DZO3w </br>
 <h2>Let’s study, shall we?</h2>
 01: http://imgur.com/a/VNgjm</br>
