@@ -62,6 +62,7 @@ Khi chọn chap: trên PC click chuột phải rồi chọn open in new tab/mở
 29: https://imgur.com/a/gtXAD</br>
 30: https://imgur.com/a/IogZ6</br>
 31-End SS1: https://imgur.com/a/XYN3z</br>
+<p>Tác giả nghỉ đến 6/3/2018 mới bắt đầu lại với SS2</p>
 <h2>Bombingsu</h2>
 01: https://imgur.com/a/u5RU5 </br>
 02: https://imgur.com/a/3CK6G </br>
@@ -97,6 +98,7 @@ Ep 07:  https://goo.gl/JLdZUB (1080p)</br>
 18: https://imgur.com/a/BV5Dw </br>
 19: https://imgur.com/a/261Sc</br>
 20-End SS1: https://imgur.com/a/mlj5O</br>
+21: https://imgur.com/a/DH3YJ</br>
 <h2>百合公寓 - Chung cư bách hợp</h2>
 01: http://imgur.com/a/cSarD </br>
 02: http://imgur.com/a/f61Fc </br>
@@ -501,6 +503,7 @@ Epilogue - #Season 1 After word: https://imgur.com/a/8nymK </br>
 33-End SS1: https://imgur.com/a/zVktf</br>
 34-SS2: https://imgur.com/a/Nyafo</br>
 35: https://imgur.com/a/vj7uL </br>
+Delay vô thời hạn: https://imgur.com/a/SxGcJ </br>
 <h2>Partition - 파티션</h2>
 00: https://imgur.com/a/gUpw0 </br>
 01: https://imgur.com/a/z9hNE </br>
