@@ -488,7 +488,7 @@ Extra 1 (dịch từ bản hàn): https://imgur.com/a/kNfH5</br>
 Extra 2 (dịch từ bản hàn):  https://imgur.com/a/6Ix9h</br>
 22: https://imgur.com/a/uKBDn</br>
 23: https://imgur.com/a/eCYZQ</br>
-Extra 3(dịch từ bản hàn):  https://imgur.com/a/PauDv</br>
+Extra 3(dịch từ bản hàn): https://imgur.com/a/5h4Yj</br>
 Extra 4(dịch từ bản hàn): https://imgur.com/a/vJBhP </br>
 24: https://imgur.com/a/FgynB</br>
 25: https://imgur.com/a/stOAK</br>
