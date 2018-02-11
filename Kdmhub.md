@@ -470,6 +470,7 @@ http://pastehtml.com/view/hu4tci7pk.rtxt</br>
 15: https://imgur.com/a/zvcpI</br>
 16: https://imgur.com/a/332b5</br>
 17: https://imgur.com/a/7PyWJ</br>
+18: https://imgur.com/a/f1JFx</br>
 <h2>온 어 리시 - On a LEASH</h2>
 01: http://imgur.com/a/l4vag</br>
 02: https://imgur.com/a/5O0KS</br>
