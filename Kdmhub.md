@@ -276,6 +276,7 @@ Extra2: http://imgur.com/a/ONgzY</br>
 14: http://imgur.com/a/3Okfe</br>
 15: http://imgur.com/a/BmRI2</br>
 <h2>Lilith - 릴리트</h2>
+01: https://imgur.com/a/phk7n</br>
 <h2>Lily漫画 - Lily Manhua</h2>
 01+02: https://imgur.com/a/XIV6I</br>
 03 + COS: https://imgur.com/a/l9cQI</br>
@@ -467,6 +468,8 @@ http://pastehtml.com/view/hu4tci7pk.rtxt</br>
 13: https://imgur.com/a/CrXgJ </br>
 14: https://imgur.com/a/XSmnt </br>
 15: https://imgur.com/a/zvcpI</br>
+16: https://imgur.com/a/332b5</br>
+17: https://imgur.com/a/7PyWJ</br>
 <h2>온 어 리시 - On a LEASH</h2>
 01: http://imgur.com/a/l4vag</br>
 02: https://imgur.com/a/5O0KS</br>
