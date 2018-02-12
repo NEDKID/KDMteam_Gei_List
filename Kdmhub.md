@@ -608,6 +608,8 @@ http://pastehtml.com/view/huhzxlvb3.rtxt </br>
 18: https://imgur.com/a/OqmYn </br>
 19: https://imgur.com/a/zV3Og </br>
 20: https://imgur.com/a/fSf2c </br>
+21: https://imgur.com/a/23EES</br>
+22: https://imgur.com/a/oT64j</br>
 Từ đây bắt đầu làm từ chap 25, các chap thiếu sẽ làm sau để các bạn không phải đợi lâu, dù gì bên ngoài cũng có nhóm dịch tới chap 24 trước rồi</br>
 25: https://imgur.com/a/kGeZ8</br>
 26: https://imgur.com/a/nrSIA</br>
