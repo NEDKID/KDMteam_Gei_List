@@ -472,6 +472,9 @@ http://pastehtml.com/view/hu4tci7pk.rtxt</br>
 16: https://imgur.com/a/332b5</br>
 17: https://imgur.com/a/7PyWJ</br>
 18: https://imgur.com/a/f1JFx</br>
+<h2>Người tình của tôi là GANGSTER?!</h2>
+00: https://imgur.com/a/zZFe8</br>
+01: https://imgur.com/a/rre1o</br>
 <h2>온 어 리시 - On a LEASH</h2>
 01: http://imgur.com/a/l4vag</br>
 02: https://imgur.com/a/5O0KS</br>
@@ -519,6 +522,8 @@ Delay vô thời hạn: https://imgur.com/a/SxGcJ </br>
 <h2>Partition - 파티션</h2>
 00: https://imgur.com/a/gUpw0 </br>
 01: https://imgur.com/a/z9hNE </br>
+02: https://imgur.com/a/thPne</br>
+03: https://imgur.com/a/ux3nB</br>
 <h2>PULSE - NHỊP ĐẬP</h2>
 00: https://imgur.com/a/48AdK</br>
 01: http://pastehtml.com/view/hsek0jnzm.rtxt </br>
