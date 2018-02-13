@@ -1,8 +1,8 @@
 <h1> KDMteam_Gei_Data </h1>
 <h2>Đây là kho link yuri vietsub của Kodomo Team - こども. Đề nghị không copy, đem ra khỏi group dù chỉ là một chap nhỏ</h2>
 <h2>Hướng dẫn tìm truyện nhanh:
-Tên truyện được xếp theo thứ tự bản chữ cái, trên máy tính có thể dùng dùng Ctrl + F rồi gõ tên truyện vào để máy tự dẫn đường đến, còn trên phone thì sẽ được update sau. </br>
-Khi chọn chap: trên PC click chuột phải rồi chọn open in new tab/mở liên kết trong tab mới, còn ở phone thì nhấn giữ link rồi chọn mở bằng tab mới. Như vậy sẽ tiết kiệm thời gian load lại trang này.</h2>
+Tên truyện được xếp theo thứ tự bản chữ cái, trên máy tính có thể dùng dùng Ctrl + F rồi gõ tên truyện vào để máy tự dẫn đường đến. Còn trên phone thì ấn vào dấu 3 chấm đổ dọc ở góc phải trên màn hình (tức là thanh menu của trình duyệt điện thoại) rồi chọn "tìm trong trang/find in page", gõ tên bộ truyện cần tìm như trên PC là máy sẽ tự động dẫn đường đến. </br>
+Khi chọn chap: trên PC click chuột phải rồi chọn open in new tab/mở liên kết trong tab mới. Còn ở phone thì nhấn giữ link rồi chọn mở bằng tab mới. Như vậy sẽ tiết kiệm thời gian load lại trang này.</h2>
 <h2>2 Birds in Spring</h2>
 01: https://imgur.com/a/7YHJO </be>
 <h2> Another face of Roomate </h2>
