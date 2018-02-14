@@ -475,6 +475,7 @@ http://pastehtml.com/view/hu4tci7pk.rtxt</br>
 <h2>Người tình của tôi là GANGSTER?!</h2>
 00: https://imgur.com/a/zZFe8</br>
 01: https://imgur.com/a/rre1o</br>
+02: https://imgur.com/a/nQPGm</br>
 <h2>온 어 리시 - On a LEASH</h2>
 01: http://imgur.com/a/l4vag</br>
 02: https://imgur.com/a/5O0KS</br>
@@ -518,13 +519,15 @@ Epilogue - #Season 1 After word: https://imgur.com/a/8nymK </br>
 34-SS2: https://imgur.com/a/Nyafo</br>
 35: https://imgur.com/a/vj7uL </br>
 Extra 5 (dịch từ bản hàn): https://imgur.com/a/psjsd</br>
-Extra 6 (dịch từ bản hàn):https://imgur.com/a/EOZPI</br>
+Extra 6 (dịch từ bản hàn): https://imgur.com/a/EOZPI</br>
+Extra 7 (dịch từ bản hàn): https://imgur.com/a/1Twr4</br>
 Delay vô thời hạn: https://imgur.com/a/SxGcJ </br>
 <h2>Partition - 파티션</h2>
 00: https://imgur.com/a/gUpw0 </br>
 01: https://imgur.com/a/z9hNE </br>
 02: https://imgur.com/a/thPne</br>
 03: https://imgur.com/a/ux3nB</br>
+04: https://imgur.com/a/2fT4l</br>
 <h2>PULSE - NHỊP ĐẬP</h2>
 00: https://imgur.com/a/48AdK</br>
 01: http://pastehtml.com/view/hsek0jnzm.rtxt </br>
