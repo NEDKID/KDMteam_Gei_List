@@ -518,6 +518,7 @@ Epilogue - #Season 1 After word: https://imgur.com/a/8nymK </br>
 34-SS2: https://imgur.com/a/Nyafo</br>
 35: https://imgur.com/a/vj7uL </br>
 Extra 5 (dịch từ bản hàn): https://imgur.com/a/psjsd</br>
+Extra 6 (dịch từ bản hàn):https://imgur.com/a/EOZPI</br>
 Delay vô thời hạn: https://imgur.com/a/SxGcJ </br>
 <h2>Partition - 파티션</h2>
 00: https://imgur.com/a/gUpw0 </br>
@@ -753,7 +754,9 @@ Pocky day: http://imgur.com/a/R616V</br>
 52: https://imgur.com/a/uPaYB</br>
 53: https://imgur.com/a/aIA4c</br>
 54: https://imgur.com/a/sbLQl </br>
+55: https://imgur.com/a/Wz5PI</br>
 <h2>YUL-HAE'S ENDING - 율하엔딩</h2>
 01: https://imgur.com/a/MeevD </br>
 02: https://imgur.com/a/rXFw3 </br>
 03: https://imgur.com/a/Mbu5v</br>
+04: https://imgur.com/a/8P9YU</br>
