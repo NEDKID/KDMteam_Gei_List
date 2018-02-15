@@ -524,7 +524,7 @@ Extra 6 (dịch từ bản hàn): https://imgur.com/a/EOZPI</br>
 Extra 7 (dịch từ bản hàn): https://imgur.com/a/1Twr4</br>
 36: https://imgur.com/a/LbY8o</br>
 Delay vô thời hạn: https://imgur.com/a/SxGcJ </br>
-<p>Mong sẽ có ngày tác giả quay về, mọi thắc mắc xin đọc chap "Delay vô thời hạn" phía trên</p>
+<strong>Mong sẽ có ngày tác giả quay về, mọi thắc mắc xin đọc chap "Delay vô thời hạn" phía trên</strong>
 <h2>Partition - 파티션</h2>
 00: https://imgur.com/a/gUpw0 </br>
 01: https://imgur.com/a/z9hNE </br>
