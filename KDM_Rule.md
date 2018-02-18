@@ -26,7 +26,7 @@ Group này của chung nên dù không phải là admin hay người làm c
 Đăng bằng mọi phương tiện nào mà mấy chế thích </br>
 - Đăng trực tiếp (nhớ cắt ảnh vì fb hiển thị bé quá, nhìn xong mù lun) </br>
 - Đăng bằng imgur như team hay làm (đó là app dành cho nhiếp ảnh gia nên mọi ảnh đăng lên đó đều giữ được chất lượng gốc) </br>
-Members trong group có thể add/thêm bất kì bạn bè/người quen của mình vào group dưới danh là "người bảo lãnh", tức là nếu bạn add bạn bè/người quen đó vào group, bạn phải phổ biến nội quy cho họ, để họ không làm sai điều gì khi vào group, nếu người đó làm sai và bị ban, bạn cũng sẽ ra đi theo người đó và tất nhiên bạn bè/người quen mà bạn add vào sẽ được duyệt thẳng, không cần phải trả lời câu hỏi
->>>CHÚC CÁC ĐỒNG RÂM CÓ NHỮNG GIÂY PHÚT VUI VẺ, THOẢI MÁI TRONG FAMILY </br>
+Members trong group có thể add/thêm bất kì bạn bè/người quen của mình vào group dưới danh là "người bảo lãnh", tức là nếu bạn add bạn bè/người quen đó vào group, bạn phải phổ biến nội quy cho họ, để họ không làm sai điều gì khi vào group, nếu người đó làm sai và bị ban, bạn cũng sẽ ra đi theo người đó và tất nhiên bạn bè/người quen mà bạn add vào sẽ được duyệt thẳng, không cần phải trả lời câu hỏi</br>
+>>>CHÚC CÁC ĐỒNG RÂM CÓ NHỮNG GIÂY PHÚT VUI VẺ, THOẢI MÁI TRONG FAMILY 
 
 <h1>Link page: https://www.facebook.com/Kodomoteamforall/</h1>
