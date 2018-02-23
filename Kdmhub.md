@@ -4,7 +4,9 @@
 Tên truyện được xếp theo thứ tự bản chữ cái, trên máy tính có thể dùng dùng Ctrl + F rồi gõ tên truyện vào để máy tự dẫn đường đến. Còn trên phone thì ấn vào dấu 3 chấm đổ dọc ở góc phải trên màn hình (tức là thanh menu của trình duyệt điện thoại) rồi chọn "tìm trong trang/find in page", gõ tên bộ truyện cần tìm như trên PC là máy sẽ tự động dẫn đường đến. </br>
 Khi chọn chap: trên PC click chuột phải rồi chọn open in new tab/mở liên kết trong tab mới. Còn ở phone thì nhấn giữ link rồi chọn mở bằng tab mới. Như vậy sẽ tiết kiệm thời gian load lại trang này.</h2>
 <h2>2 Birds in Spring</h2>
-01: https://imgur.com/a/7YHJO </be>
+01: https://imgur.com/a/7YHJO </br>
+02: https://imgur.com/a/AEP12</br>
+03: https://imgur.com/a/CxqFe</br>
 <h2> Another face of Roomate </h2>
 01: https://imgur.com/a/Vapog </br>
 02: https://imgur.com/a/ICJAH </br>
@@ -761,6 +763,7 @@ Pocky day: http://imgur.com/a/R616V</br>
 53: https://imgur.com/a/aIA4c</br>
 54: https://imgur.com/a/sbLQl </br>
 55: https://imgur.com/a/Wz5PI</br>
+56: https://imgur.com/a/RQJ6s</br>
 <h2>YUL-HAE'S ENDING - 율하엔딩</h2>
 01: https://imgur.com/a/MeevD </br>
 02: https://imgur.com/a/rXFw3 </br>
