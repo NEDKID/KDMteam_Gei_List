@@ -116,6 +116,9 @@ Extra 01: https://imgur.com/a/tGzMz </br>
 10: https://imgur.com/a/OMHnd </br>
 <h2>Dousei Seikatsu (tạm ngưng một thời gian)</h2>
 01: https://imgur.com/a/984T4 </br>
+<h2>Dữ liệu tình yêu</h2>
+01: https://imgur.com/a/EeNLx</br>
+02: https://imgur.com/a/wWBlB</br>
 <h2>エデンからの王子様 - Eden kara no ouji-sama</h2>
 01: https://imgur.com/a/djNRy </br>
 02: https://imgur.com/a/xJANE</br>
@@ -393,6 +396,7 @@ Lời 213 + 214: https://imgur.com/a/6GxcI</br>
 Lời 215 + 216: https://imgur.com/a/Bqm5w</br>
 Lời 217 + 218: https://imgur.com/a/kRd04</br>
 Lời 219 + 220: https://imgur.com/a/a0C2g</br>
+Lời 221 - 230 (10chap):  https://imgur.com/a/obD6q</br>
 <h2>Maison de Maid</h2>
 01: http://pastehtml.com/view/hsh83q3mc.rtxt</br>
 02: http://pastehtml.com/view/hsh87j9w4.rtxt</br>
@@ -626,7 +630,8 @@ http://pastehtml.com/view/huhzxlvb3.rtxt </br>
 20: https://imgur.com/a/fSf2c </br>
 21: https://imgur.com/a/23EES</br>
 22: https://imgur.com/a/oT64j</br>
-Từ đây bắt đầu làm từ chap 25, các chap thiếu sẽ làm sau để các bạn không phải đợi lâu, dù gì bên ngoài cũng có nhóm dịch tới chap 24 trước rồi</br>
+23: https://imgur.com/a/lVMEh</br>
+24: https://imgur.com/a/OYzD9</br>
 25: https://imgur.com/a/kGeZ8</br>
 26: https://imgur.com/a/nrSIA</br>
 27: https://imgur.com/a/wubZQ</br>
@@ -769,3 +774,4 @@ Pocky day: http://imgur.com/a/R616V</br>
 02: https://imgur.com/a/rXFw3 </br>
 03: https://imgur.com/a/Mbu5v</br>
 04: https://imgur.com/a/8P9YU</br>
+05: https://imgur.com/a/Qgb3E</br>
