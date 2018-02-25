@@ -502,7 +502,7 @@ Epoligue (dịch từ bản hàn): https://imgur.com/a/pB6LX</br>
 15: https://imgur.com/a/GdvKV</br>
 16: https://imgur.com/a/EeSpO</br>
 17: https://imgur.com/a/VKD1J</br>
- 18: https://imgur.com/a/N4nK4</br>
+18: https://imgur.com/a/N4nK4</br>
 19: https://imgur.com/a/qz5aW</br>
 20: https://imgur.com/a/guPgl</br>
 21: https://imgur.com/a/viYWC</br>
@@ -537,6 +537,7 @@ Delay vô thời hạn: https://imgur.com/a/SxGcJ </br>
 02: https://imgur.com/a/thPne</br>
 03: https://imgur.com/a/ux3nB</br>
 04: https://imgur.com/a/2fT4l</br>
+05: https://imgur.com/a/clTS2</br>
 <h2>PULSE - NHỊP ĐẬP</h2>
 00: https://imgur.com/a/48AdK</br>
 01: http://pastehtml.com/view/hsek0jnzm.rtxt </br>
