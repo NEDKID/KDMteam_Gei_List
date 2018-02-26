@@ -119,6 +119,10 @@ Extra 01: https://imgur.com/a/tGzMz </br>
 <h2>Dữ liệu tình yêu</h2>
 01: https://imgur.com/a/EeNLx</br>
 02: https://imgur.com/a/wWBlB</br>
+03: https://imgur.com/a/w2GzH</br>
+04: https://imgur.com/a/y3AOu</br>
+05: https://imgur.com/a/5cTk0</br>
+06: https://imgur.com/a/qRWPP</br>
 <h2>エデンからの王子様 - Eden kara no ouji-sama</h2>
 01: https://imgur.com/a/djNRy </br>
 02: https://imgur.com/a/xJANE</br>
