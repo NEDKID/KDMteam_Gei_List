@@ -176,6 +176,8 @@ End: https://imgur.com/a/nUFOH</br>
 11: https://imgur.com/a/hFONY</br>
 12: https://imgur.com/a/r0Pi5</br>
 13: https://imgur.com/a/MHzi4</br>
+<h2>Futari Monologue</h2>
+01: https://imgur.com/a/SaA1s</br>
 <h2>Futatsu No Rasen</h2>
 01: https://imgur.com/a/qEt0a
 <h2>여길봐 햄뽀야!- Hamppoya!</h2>
