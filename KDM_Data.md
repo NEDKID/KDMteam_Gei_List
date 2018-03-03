@@ -190,7 +190,7 @@ End: https://imgur.com/a/nUFOH</br>
 07: https://imgur.com/a/6M5ip</br>
 08: https://imgur.com/a/zPNd8</br>
 09: https://imgur.com/a/53yMa </br>
-<h2>骨の髄まで愛す- Yêu đến tận xương tủy (delay dài hạn vì bà boss quá lười)</h2>
+<h2>骨の髄まで愛す- Yêu đến tận xương tủy (delay dài hạn vì bà boss super mega lười)</h2>
 01: https://imgur.com/a/CzRdE </br>
 <h2>네가 없었으면 좋겠어- It’d be great if you didn’t exist</h2>
 00: http://imgur.com/a/Nu3Wt</br>
@@ -271,6 +271,10 @@ Extra2: http://imgur.com/a/ONgzY</br>
 72: https://imgur.com/a/nvtsZ</br>
 73: https://imgur.com/a/kIoaR</br>
 74: https://imgur.com/a/DZO3w </br>
+75: https://imgur.com/a/vVckC</br>
+76: https://imgur.com/a/uVWx3</br>
+77: https://imgur.com/a/Oaj9h</br>
+<p>Còn 4 chap nữa end SS2, tiếp tục SS3</p>
 <h2>Let’s study, shall we?</h2>
 01: http://imgur.com/a/VNgjm</br>
 02: http://imgur.com/a/uWL6A</br>
@@ -776,6 +780,7 @@ Pocky day: http://imgur.com/a/R616V</br>
 54: https://imgur.com/a/sbLQl </br>
 55: https://imgur.com/a/Wz5PI</br>
 56: https://imgur.com/a/RQJ6s</br>
+57: https://imgur.com/a/Rlv6l</br>
 <h2>YUL-HAE'S ENDING - 율하엔딩</h2>
 01: https://imgur.com/a/MeevD </br>
 02: https://imgur.com/a/rXFw3 </br>
