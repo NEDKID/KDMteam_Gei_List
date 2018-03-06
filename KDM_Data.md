@@ -102,6 +102,7 @@ Ep 07:  https://goo.gl/JLdZUB (1080p)</br>
 20-End SS1: https://imgur.com/a/mlj5O</br>
 21: https://imgur.com/a/DH3YJ</br>
 22: https://imgur.com/a/xp6Qb</br>
+23: https://imgur.com/a/zdhX9</br>
 <h2>百合公寓 - Chung cư bách hợp</h2>
 01: http://imgur.com/a/cSarD </br>
 02: http://imgur.com/a/f61Fc </br>
@@ -293,6 +294,7 @@ Extra2: http://imgur.com/a/ONgzY</br>
 15: http://imgur.com/a/BmRI2</br>
 <h2>Lilith - 릴리트</h2>
 01: https://imgur.com/a/phk7n</br>
+02: https://imgur.com/a/NS4hn</br>
 <h2>Lily漫画 - Lily Manhua</h2>
 01+02: https://imgur.com/a/XIV6I</br>
 03 + COS: https://imgur.com/a/l9cQI</br>
