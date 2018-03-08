@@ -64,7 +64,6 @@ Khi chọn chap: trên PC click chuột phải rồi chọn open in new tab/mở
 29: https://imgur.com/a/gtXAD</br>
 30: https://imgur.com/a/IogZ6</br>
 31-End SS1: https://imgur.com/a/XYN3z</br>
-<p>Tác giả nghỉ đến 6/3/2018 mới bắt đầu lại với SS2</p>
 <h2>Bombingsu</h2>
 01: https://imgur.com/a/u5RU5 </br>
 02: https://imgur.com/a/3CK6G </br>
@@ -124,6 +123,10 @@ Extra 01: https://imgur.com/a/tGzMz </br>
 04: https://imgur.com/a/y3AOu</br>
 05: https://imgur.com/a/5cTk0</br>
 06: https://imgur.com/a/qRWPP</br>
+07: https://imgur.com/a/1ZHrQ</br>
+08: https://imgur.com/a/Wg3Yq</br>
+09: https://imgur.com/a/ehzFi</br>
+10: https://imgur.com/a/QI0rL</br>
 <h2>エデンからの王子様 - Eden kara no ouji-sama</h2>
 01: https://imgur.com/a/djNRy </br>
 02: https://imgur.com/a/xJANE</br>
@@ -162,6 +165,7 @@ End: https://imgur.com/a/nUFOH</br>
 28: https://imgur.com/a/2HQpz</br>
 29: https://imgur.com/a/uB4Cm</br>
 30 - End SS1: https://imgur.com/a/H6Ask</br>
+31 - SS2: https://imgur.com/a/XAS0R</br>
 <h2>Everyday Lily</h2>
 00: https://imgur.com/a/XGZMh</br>
 01: https://imgur.com/a/1D1VE</br>
@@ -409,6 +413,8 @@ Lời 215 + 216: https://imgur.com/a/Bqm5w</br>
 Lời 217 + 218: https://imgur.com/a/kRd04</br>
 Lời 219 + 220: https://imgur.com/a/a0C2g</br>
 Lời 221 - 230 (10chap):  https://imgur.com/a/obD6q</br>
+Lời 231 - 240 (10chap): https://imgur.com/a/EyuCL</br>
+Lời 241 - 250 (10chap): https://imgur.com/a/nZlzn</br>
 <h2>Maison de Maid</h2>
 01: http://pastehtml.com/view/hsh83q3mc.rtxt</br>
 02: http://pastehtml.com/view/hsh87j9w4.rtxt</br>
@@ -490,6 +496,7 @@ http://pastehtml.com/view/hu4tci7pk.rtxt</br>
 16: https://imgur.com/a/332b5</br>
 17: https://imgur.com/a/7PyWJ</br>
 18: https://imgur.com/a/f1JFx</br>
+19: https://imgur.com/a/ew3hG</br>
 <h2>Người tình của tôi là GANGSTER?!</h2>
 00: https://imgur.com/a/zZFe8</br>
 01: https://imgur.com/a/rre1o</br>
@@ -550,6 +557,7 @@ Delay vô thời hạn: https://imgur.com/a/SxGcJ </br>
 03: https://imgur.com/a/ux3nB</br>
 04: https://imgur.com/a/2fT4l</br>
 05: https://imgur.com/a/clTS2</br>
+06: https://imgur.com/a/jrO1o</br>
 <h2>PULSE - NHỊP ĐẬP</h2>
 00: https://imgur.com/a/48AdK</br>
 01: http://pastehtml.com/view/hsek0jnzm.rtxt </br>
