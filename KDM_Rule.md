@@ -19,7 +19,7 @@ P/s: lầy lội cũng là 1 phần của kodomo</br>
 11. Để tìm các link chap/bộ truyện do kodomo thực hiện thì vào bài ghim tìm, không đăng bài hay comment hỏi</br>
 12. Không upload bất kì raw truyện nào vào group. Up link gốc trực tiếp từ official web của tác giả và spoil vài tấm ảnh(KHÔNG ĐƯỢC dùng ảnh có ngôn ngữ gốc) thì được</br>
 13. Không upload bất kì bản raw, english của những bộ truyện team đang dịch, vì ai cũng vậy, các admin cũng vậy, đều cảm thấy khó chịu khi bộ truyện mình đang làm cứ bị spoil này nọ, mất hứng làm</br>
-<p>Chúng ta không đến với nhau vì nhân duyên nhá :3</p>
+<h4>Chúng ta không đến với nhau vì nhân duyên nhá :3</h4>
 * Nội quy sẽ được update nếu cần thiết
 <h1>QUYỀN LỢI</h1>
 Như mọi người thấy, group mình đặt với chế độ gia đình, thì ai vào đây cũng là thành viên của Kodomo Family </br>
