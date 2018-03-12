@@ -166,6 +166,7 @@ End: https://imgur.com/a/nUFOH</br>
 29: https://imgur.com/a/uB4Cm</br>
 30 - End SS1: https://imgur.com/a/H6Ask</br>
 31 - SS2: https://imgur.com/a/XAS0R</br>
+32 - SS2: https://imgur.com/a/lC04i</br>
 <h2>Everyday Lily</h2>
 00: https://imgur.com/a/XGZMh</br>
 01: https://imgur.com/a/1D1VE</br>
@@ -412,9 +413,10 @@ Lời 213 + 214: https://imgur.com/a/6GxcI</br>
 Lời 215 + 216: https://imgur.com/a/Bqm5w</br>
 Lời 217 + 218: https://imgur.com/a/kRd04</br>
 Lời 219 + 220: https://imgur.com/a/a0C2g</br>
-Lời 221 - 230 (10chap):  https://imgur.com/a/obD6q</br>
+Lời 221 - 230 (10chap): https://imgur.com/a/obD6q</br>
 Lời 231 - 240 (10chap): https://imgur.com/a/EyuCL</br>
 Lời 241 - 250 (10chap): https://imgur.com/a/nZlzn</br>
+Lời 251 - 260 (10chap): https://imgur.com/a/Y3ksD</br>
 <h2>Maison de Maid</h2>
 01: http://pastehtml.com/view/hsh83q3mc.rtxt</br>
 02: http://pastehtml.com/view/hsh87j9w4.rtxt</br>
@@ -497,11 +499,13 @@ http://pastehtml.com/view/hu4tci7pk.rtxt</br>
 17: https://imgur.com/a/7PyWJ</br>
 18: https://imgur.com/a/f1JFx</br>
 19: https://imgur.com/a/ew3hG</br>
+20: https://imgur.com/a/ZhOX7</br>
 <h2>Người tình của tôi là GANGSTER?!</h2>
 00: https://imgur.com/a/zZFe8</br>
 01: https://imgur.com/a/rre1o</br>
 02: https://imgur.com/a/nQPGm</br>
 03: https://imgur.com/a/jFGGp</br>
+04: https://imgur.com/a/Oc4LV</br>
 <h2>온 어 리시 - On a LEASH</h2>
 01: http://imgur.com/a/l4vag</br>
 02: https://imgur.com/a/5O0KS</br>
@@ -791,6 +795,7 @@ Pocky day: http://imgur.com/a/R616V</br>
 55: https://imgur.com/a/Wz5PI</br>
 56: https://imgur.com/a/RQJ6s</br>
 57: https://imgur.com/a/Rlv6l</br>
+58: https://imgur.com/a/RiOMU</br>
 <h2>YUL-HAE'S ENDING - 율하엔딩</h2>
 01: https://imgur.com/a/MeevD </br>
 02: https://imgur.com/a/rXFw3 </br>
