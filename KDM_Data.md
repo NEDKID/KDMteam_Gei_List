@@ -184,6 +184,7 @@ End: https://imgur.com/a/nUFOH</br>
 13: https://imgur.com/a/MHzi4</br>
 <h2>Futari Monologue</h2>
 01: https://imgur.com/a/SaA1s</br>
+02: https://imgur.com/a/t1vdC</br>
 <h2>Futatsu No Rasen</h2>
 01: https://imgur.com/a/qEt0a
 <h2>여길봐 햄뽀야!- Hamppoya!</h2>
@@ -280,7 +281,8 @@ Extra2: http://imgur.com/a/ONgzY</br>
 75: https://imgur.com/a/vVckC</br>
 76: https://imgur.com/a/uVWx3</br>
 77: https://imgur.com/a/Oaj9h</br>
-<p>Còn 4 chap nữa end SS2, tiếp tục SS3</p>
+78: https://imgur.com/a/7sKFI</br>
+<p>Còn 3 chap nữa end SS2, tiếp tục SS3</p>
 <h2>Let’s study, shall we?</h2>
 01: http://imgur.com/a/VNgjm</br>
 02: http://imgur.com/a/uWL6A</br>
@@ -500,6 +502,8 @@ http://pastehtml.com/view/hu4tci7pk.rtxt</br>
 18: https://imgur.com/a/f1JFx</br>
 19: https://imgur.com/a/ew3hG</br>
 20: https://imgur.com/a/ZhOX7</br>
+21: https://imgur.com/a/cMrqK</br>
+22: https://imgur.com/a/ZhOX7</br>
 <h2>Người tình của tôi là GANGSTER?!</h2>
 00: https://imgur.com/a/zZFe8</br>
 01: https://imgur.com/a/rre1o</br>
@@ -632,6 +636,8 @@ http://pastehtml.com/view/huhzxlvb3.rtxt </br>
 65: https://imgur.com/a/krXoA</br>
 66: https://imgur.com/a/vt4Oj</br>
 67 - THE END: https://imgur.com/a/xeqoy</br>
+<h2>Say mê</h2>
+01: https://imgur.com/a/UAjG6</br>
 <h2>我最特别的她 - She who's most special to me</h2>
 01: http://imgur.com/a/CJfpg</br>
 02: http://imgur.com/a/mGw3J</br>
@@ -796,6 +802,7 @@ Pocky day: http://imgur.com/a/R616V</br>
 56: https://imgur.com/a/RQJ6s</br>
 57: https://imgur.com/a/Rlv6l</br>
 58: https://imgur.com/a/RiOMU</br>
+59: https://imgur.com/a/vybA3</br>
 <h2>YUL-HAE'S ENDING - 율하엔딩</h2>
 01: https://imgur.com/a/MeevD </br>
 02: https://imgur.com/a/rXFw3 </br>
