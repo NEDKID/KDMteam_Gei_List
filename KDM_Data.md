@@ -127,6 +127,8 @@ Extra 01: https://imgur.com/a/tGzMz </br>
 08: https://imgur.com/a/Wg3Yq</br>
 09: https://imgur.com/a/ehzFi</br>
 10: https://imgur.com/a/QI0rL</br>
+11: https://imgur.com/a/jJ56C</br>
+12: https://imgur.com/a/7MdlV</br>
 <h2>エデンからの王子様 - Eden kara no ouji-sama</h2>
 01: https://imgur.com/a/djNRy </br>
 02: https://imgur.com/a/xJANE</br>
