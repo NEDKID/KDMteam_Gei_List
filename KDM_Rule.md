@@ -9,17 +9,19 @@ P/s: lầy lội cũng là 1 phần của kodomo</br>
 1. Ở đây các bạn có thể giao lưu với các admin tùy thích</br>
 2. Không đem link truyện của team hay bất cứ hình ảnh tác chế nào thuộc sở hữu của người (admin, member) trong group ra ngoài để giúp động lẫn team tránh bị lezhin hay các thành phần khác report </br>
 3. Không đem link của nhóm khác vào group này, nhóm mình thì xài hàng nhóm mình thôi, có gì tự ib riêng cho nhau </br>
-4. Các member có thể đăng stt hỏi hay chat thoải mái, tự lập nhóm chat cho riêng cũng được </br>
+4. Các member có thể đăng stt hay chat thoải mái, tự lập nhóm chat cho riêng cũng được </br>
 5. Không teencode dưới mọi hình thức, viết tắt thì được </br>
-6. Mọi stt có chiều hướng gây war sẽ bị xóa và người gây war thì bay màu nick </br>
+6. Mọi stt có chiều hướng gây war sẽ bị xóa và người gây war thì bay màu </br>
 7. Đừng chơi trò ninja, xem chùa, hãy tích cực tương tác dù chỉ 1 like nhỏ </br>
 8. Không được đăng bài không liên quan đến yuri, GL</br>
-9. Tuyệt đối không hối chap hay đòi hỏi, xin, kêu team làm truyện mới, truyện này, truyện nọ khác </br>
+9. Tuyệt đối không hối chap hay đòi hỏi, xin chap, kêu team làm truyện mới, truyện này, truyện nọ khác </br>
 10. Không được comment . hay bất cứ cmt nào tương tự vậy, hãy say "thank you~" để thể hiện lòng cảm kích của mình với người thực hiện chap truyện đó :3</br>
 11. Để tìm các link chap/bộ truyện do kodomo thực hiện thì vào bài ghim tìm, không đăng bài hay comment hỏi</br>
-12. Không upload bất kì raw truyện nào vào group. Up link gốc trực tiếp từ official web của tác giả và spoil vài tấm ảnh(KHÔNG ĐƯỢC dùng ảnh có ngôn ngữ gốc) thì được</br>
-13. Không upload bất kì bản raw, english của những bộ truyện team đang dịch, vì ai cũng vậy, các admin cũng vậy, đều cảm thấy khó chịu khi bộ truyện mình đang làm cứ bị spoil này nọ, mất hứng làm</br>
-<h4>Chúng ta không đến với nhau vì nhân duyên nhá :3</h4>
+12. Quy định về việc up raw truyện:</br>
+    * Chap phải tốn tiền để mua thì không được up vào group.</br>
+    * Chap free được đăng công khai trên site hay trang cá nhân của tác giả thì được quyền up vào group, nhớ để lại link, nguồn,...để         làm bằng chứng là chap đó thực sự free và công khai.</br>
+    * Chap truyện do team đang thầu/đang thực hiện dù là bản raw hay english hay spanish cũng không được up vào gruop, hãy tôn trọng tâm       huyết của người dịch, đứng làm họ mất hứng.</br>
+<strong>Chúng ta không đến với nhau vì nhân duyên nhá :3</strong>
 * Nội quy sẽ được update nếu cần thiết
 <h1>QUYỀN LỢI</h1>
 Như mọi người thấy, group mình đặt với chế độ gia đình, thì ai vào đây cũng là thành viên của Kodomo Family </br>
