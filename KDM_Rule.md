@@ -7,7 +7,7 @@ You are now kodomo, we are now kodomo, kodomo everywhere ~~~</br>
 P/s: lầy lội cũng là 1 phần của kodomo</br>
 <h1>NỘI QUY</h1>
 1. Ở đây các bạn có thể giao lưu với các admin tùy thích</br>
-2. Không đem link truyện của team hay bất cứ hình ảnh tác chế nào thuộc sở hữu của người (admin, member) trong group ra ngoài để giúp động lẫn team tránh bị lezhin hay các thành phần khác report </br>
+2. Không đem link truyện của team hay bất cứ hình ảnh tác chế nào thuộc sở hữu của người (admin, member) trong group ra ngoài để giúp group lẫn team tránh bị lezhin hay các thành phần khác report </br>
 3. Không đem link của nhóm khác vào group này, nhóm mình thì xài hàng nhóm mình thôi, có gì tự ib riêng cho nhau </br>
 4. Các member có thể đăng stt hay chat thoải mái, tự lập nhóm chat cho riêng cũng được </br>
 5. Không teencode dưới mọi hình thức, viết tắt thì được </br>
@@ -20,7 +20,7 @@ P/s: lầy lội cũng là 1 phần của kodomo</br>
 12. Quy định về việc up raw truyện:</br>
     * Chap phải tốn tiền để mua thì không được up vào group.</br>
     * Chap free được đăng công khai trên site hay trang cá nhân của tác giả thì được quyền up vào group, nhớ để lại link, nguồn,...để         làm bằng chứng là chap đó thực sự free và công khai.</br>
-    * Chap truyện do team đang thầu/đang thực hiện dù là bản raw hay english hay spanish cũng không được up vào gruop, hãy tôn trọng tâm       huyết của người dịch, đứng làm họ mất hứng.</br>
+    * Chap truyện do team đang thầu/đang thực hiện dù là bản raw hay english hay spanish cũng không được up vào group, hãy tôn trọng tâm       huyết của người dịch, đứng làm họ mất hứng.</br>
 <strong>Chúng ta không đến với nhau vì nhân duyên nhá :3</strong>
 * Nội quy sẽ được update nếu cần thiết
 <h1>QUYỀN LỢI</h1>
