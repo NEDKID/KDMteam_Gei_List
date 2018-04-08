@@ -22,7 +22,7 @@ Giải thích một chút về <strong>RAW</strong> cho mọi người hiểu: <
     * <strong>RAW</strong> free được đăng công khai trên site hay trang cá nhân của tác giả thì được quyền up vào group, nhớ để lại link, nguồn,...để làm bằng chứng là chap đó thực sự free và công khai.</br>
     * <strong>RAW</strong> truyện do team đang thầu/đang thực hiện dù là bản raw hay english hay spanish cũng không được up vào group, hãy tôn trọng tâm huyết của người dịch, đứng làm họ mất hứng.</br>
     <strong>Vì phần này có thể khá khó hiểu với một số bạn chưa biết gì về các khâu dịch truyện nên hãy đọc kĩ, có khó khăn gì thì hỏi lại trước khi đăng bài có liên quan đến nội quy này để tránh vô tình vi phạm và bay màu. </strong></br>
-<strong>* Nội quy sẽ được update nếu cần thiết</strong>
+<strong> => Nội quy sẽ được update nếu cần thiết <= </strong>
 <h1>QUYỀN LỢI</h1>
 - Như mọi người thấy, group mình đặt với chế độ gia đình, thì ai vào đây cũng là thành viên của Kodomo Family </br>
 - Group này của chung nên dù không phải là admin hay người làm chính thức trong team thì các member đều được phép đăng truyện của mình làm vào đây :3
