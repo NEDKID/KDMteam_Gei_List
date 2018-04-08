@@ -17,7 +17,7 @@ P/s: lầy lội cũng là 1 phần của kodomo</br>
 10. Không được comment . hay bất cứ cmt nào tương tự vậy, hãy say "thank you~" để thể hiện lòng cảm kích của mình với người thực hiện chap truyện đó :3</br>
 11. Để tìm các link chap/bộ truyện do kodomo thực hiện thì vào bài ghim tìm, không tìm được thì có thể comment/bình luận để hỏi, không đăng bài làm loãn group</br>
 12. Quy định về việc up <strong>RAW (chap,ảnh)</strong> truyện:</br>
-    * <strong>RAW</strong>phải tốn tiền để mua thì không được up vào group.</br>
+    * <strong>RAW</strong> phải tốn tiền để mua thì không được up vào group.</br>
     * <strong>RAW</strong> free được đăng công khai trên site hay trang cá nhân của tác giả thì được quyền up vào group, nhớ để lại link, nguồn,...để làm bằng chứng là chap đó thực sự free và công khai.</br>
     * <strong>RAW</strong> truyện do team đang thầu/đang thực hiện dù là bản raw hay english hay spanish cũng không được up vào group, hãy tôn trọng tâm huyết của người dịch, đứng làm họ mất hứng.</br>
 <strong>Nội quy sẽ được update nếu cần thiết</strong>
