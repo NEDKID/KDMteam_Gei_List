@@ -4,7 +4,7 @@
 Vào cái động này rồi thì cả lũ đều như nhau</br>
 You are now kodomo, we are now kodomo, kodomo everywhere ~~~</br>
 P/s: lầy lội cũng là 1 phần của kodomo</br>
-Lưu ý: team mặc định các tài khoản mới tạo thường là clone (tài khoản dự phòng) nên sẽ không duyệt các tài khoản đó, dù có trả lời đúng, chỉ có các tài khoản facebook dùng từ 2 tháng trở lên mới được duyệt</br>
+Lưu ý: team mặc định các tài khoản mới tạo thường là clone (tài khoản dự phòng) nên sẽ không duyệt các tài khoản đó, dù có trả lời đúng, chỉ có các tài khoản facebook dùng từ 2 tháng trở lên mới được duyệt. Nếu có lí do phải dùng tài khoản mới xin vào thì ghi chú thêm ở phần trả lời câu hỏi để admin biết và duyệt</br>
 <h1>NỘI QUY</h1>
 1. Ở đây các bạn có thể giao lưu với các admin tùy thích</br>
 2. Không đem link truyện của team hay bất cứ hình ảnh tác chế nào thuộc sở hữu của người (admin, member) trong group ra ngoài để giúp group lẫn team tránh bị lezhin hay các thành phần khác report </br>
