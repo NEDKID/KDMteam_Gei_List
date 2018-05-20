@@ -9,12 +9,12 @@ Lưu ý: team mặc định các tài khoản mới tạo thường là clone (t
 1. Ở đây các bạn có thể giao lưu với các admin tùy thích</br>
 2. Không đem link truyện của team hay bất cứ hình ảnh tác chế nào thuộc sở hữu của người (admin, member) trong group ra ngoài để giúp group lẫn team tránh bị lezhin hay các thành phần khác report </br>
 3. Không đem link của nhóm khác vào group này, nhóm mình thì xài hàng nhóm mình thôi, có gì tự ib riêng cho nhau </br>
-4. Các member có thể đăng stt hay chat thoải mái, tự lập nhóm chat cho riêng cũng được </br>
+4. Các member có thể đăng stt hay chat thoải mái (miễn nó liên quan đến GL, yuri), tự lập nhóm chat cho riêng cũng được </br>
 5. Không teencode dưới mọi hình thức, viết tắt thì được </br>
 6. Mọi stt có chiều hướng gây war sẽ bị xóa và người gây war thì bay màu </br>
 7. Đừng chơi trò ninja, xem chùa, hãy tích cực tương tác dù chỉ 1 like nhỏ </br>
 8. Không được đăng bài không liên quan đến yuri, GL</br>
-9. Tuyệt đối không hối chap hay đòi hỏi, xin chap, kêu team làm truyện mới, truyện này, truyện nọ khác </br>
+9. Tuyệt đối không hối chap hay đòi hỏi, xin chap, <strong>NHƯNG</strong> có thể đăng một bộ truyện nào đó, nội dung hay, art đẹp, cute, cuốn hút và muốn team thầu.</br>
 10. Không được comment . hay bất cứ cmt nào tương tự vậy, hãy say "thank you~" để thể hiện lòng cảm kích của mình với người thực hiện chap truyện đó :3</br>
 11. Để tìm các link chap/bộ truyện do kodomo thực hiện thì vào bài ghim tìm, không tìm được thì có thể comment/bình luận để hỏi, không đăng bài làm loãn group</br>
 12. Quy định về việc up <strong>RAW (chap,ảnh)</strong> truyện:</br>
