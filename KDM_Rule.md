@@ -4,6 +4,7 @@
 Vào cái động này rồi thì cả lũ đều như nhau</br>
 You are now kodomo, we are now kodomo, kodomo everywhere ~~~</br>
 P/s: lầy lội cũng là 1 phần của kodomo</br>
+Kết quả xúc tác hóa học đó là: Red Lily </br>
 Lưu ý: team mặc định các tài khoản mới tạo thường là clone (tài khoản dự phòng) nên sẽ không duyệt các tài khoản đó, dù có trả lời đúng, chỉ có các tài khoản facebook dùng từ 2 tháng trở lên mới được duyệt. Nếu có lí do phải dùng tài khoản mới xin vào thì ghi chú thêm ở phần trả lời câu hỏi để admin biết và duyệt</br>
 <h1>NỘI QUY</h1>
 1. Ở đây các bạn có thể giao lưu với các admin tùy thích</br>
@@ -12,7 +13,7 @@ Lưu ý: team mặc định các tài khoản mới tạo thường là clone (t
 4. Các member có thể đăng stt hay chat thoải mái (miễn nó liên quan đến GL, yuri), tự lập nhóm chat cho riêng cũng được </br>
 5. Không teencode dưới mọi hình thức, viết tắt thì được </br>
 6. Mọi stt có chiều hướng gây war sẽ bị xóa và người gây war thì bay màu </br>
-7. Đừng chơi trò ninja, xem chùa, hãy tích cực tương tác dù chỉ 1 like nhỏ </br>
+7. Khi xem xong chap do team up trên group nhớ like, comment (nếu được) và <strong>KHÔNG ĐƯỢC SHARE LINK RA KHỎI GROUP</strong> </br>
 8. Không được đăng bài không liên quan đến yuri, GL</br>
 9. Tuyệt đối không hối chap hay đòi hỏi, xin chap, <strong>NHƯNG</strong> có thể đăng một bộ truyện nào đó, nội dung hay, art đẹp, cute, cuốn hút và muốn team thầu.</br>
 10. Không được comment . hay bất cứ cmt nào tương tự vậy, hãy say "thank you~" để thể hiện lòng cảm kích của mình với người thực hiện chap truyện đó :3</br>
