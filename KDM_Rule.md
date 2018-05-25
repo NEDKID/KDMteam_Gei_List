@@ -6,6 +6,7 @@ You are now kodomo, we are now kodomo, kodomo everywhere ~~~</br>
 P/s: lầy lội cũng là 1 phần của kodomo</br>
 Kết quả xúc tác hóa học đó là: Red Lily </br>
 Lưu ý: team mặc định các tài khoản mới tạo thường là clone (tài khoản dự phòng) nên sẽ không duyệt các tài khoản đó, dù có trả lời đúng, chỉ có các tài khoản facebook dùng từ 2 tháng trở lên mới được duyệt. Nếu có lí do phải dùng tài khoản mới xin vào thì ghi chú thêm ở phần trả lời câu hỏi để admin biết và duyệt</br>
+<strong> team mình dùng công cụ để lọc members và xếp hạng members nên để tránh bay màu do thiếu tương tác chỉ có một cách là đi tương tác thường xuyên </strong>
 <h1>NỘI QUY</h1>
 1. Ở đây các bạn có thể giao lưu với các admin tùy thích</br>
 2. Không đem link truyện của team hay bất cứ hình ảnh tác chế nào thuộc sở hữu của người (admin, member) trong group ra ngoài để giúp group lẫn team tránh bị lezhin hay các thành phần khác report </br>
