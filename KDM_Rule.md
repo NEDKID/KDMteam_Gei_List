@@ -14,10 +14,10 @@ Lưu ý: team mặc định các tài khoản mới tạo thường là clone (t
 4. Các member có thể đăng stt hay chat thoải mái (miễn nó liên quan đến GL, yuri), tự lập nhóm chat cho riêng cũng được </br>
 5. Không teencode dưới mọi hình thức, viết tắt thì được </br>
 6. Mọi stt có chiều hướng gây war sẽ bị xóa và người gây war thì bay màu </br>
-7. Khi xem xong chap do team up trên group nhớ like, comment (nếu được) và <strong>KHÔNG ĐƯỢC SHARE LINK RA KHỎI GROUP</strong> </br>
+7. Khi xem xong chap do team up trên group nhớ like, comment "thank you~" (nếu được) để thể hiện lòng cảm kích của mình với người thực hiện chap truyện đó :3 và <strong>KHÔNG ĐƯỢC SHARE LINK RA KHỎI GROUP</strong> </br>
 8. Không được đăng bài không liên quan đến yuri, GL</br>
 9. Tuyệt đối không hối chap hay đòi hỏi, xin chap, <strong>NHƯNG</strong> có thể đăng một bộ truyện nào đó, nội dung hay, art đẹp, cute, cuốn hút và muốn team thầu.</br>
-10. Không được comment . hay bất cứ cmt nào tương tự vậy, hãy say "thank you~" để thể hiện lòng cảm kích của mình với người thực hiện chap truyện đó :3</br>
+10. Không được comment . hay bất cứ cmt nào tương tự vậy</br>
 11. Để tìm các link chap/bộ truyện do kodomo thực hiện thì vào bài ghim tìm, không tìm được thì có thể comment/bình luận để hỏi, không đăng bài làm loãn group</br>
 12. Quy định về việc up <strong>RAW (chap,ảnh)</strong> truyện:</br>
 Giải thích một chút về <strong>RAW</strong> cho mọi người hiểu: <strong>RAW</strong> là chap truyện bản gốc của tác giả, truyện raw thường giữ nguyên ngôn ngữ gốc (Nhật, Trung, Hàn, Thái,...) tức là chưa được dịch sang English hay Việt hay Spanish,...</br>
