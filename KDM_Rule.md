@@ -4,7 +4,6 @@
 Vào cái động này rồi thì cả lũ đều như nhau</br>
 You are now kodomo, we are now kodomo, kodomo everywhere ~~~</br>
 P/s: lầy lội cũng là 1 phần của kodomo</br>
-<strong>Kết quả xúc tác hóa học đó là: Red Lily/Scarlet Lily</strong> </br>
 Lưu ý: team mặc định các tài khoản mới tạo thường là clone (tài khoản dự phòng) nên sẽ không duyệt các tài khoản đó, dù có trả lời đúng, chỉ có các tài khoản facebook dùng từ 2 tháng trở lên mới được duyệt. Nếu có lí do phải dùng tài khoản mới xin vào thì ghi chú thêm ở phần trả lời câu hỏi để admin biết và duyệt</br>
 <strong> Team mình dùng công cụ để lọc members và xếp hạng members nên để tránh bay màu do thiếu tương tác chỉ có một cách là đi tương tác thường xuyên </strong>
 <h1>NỘI QUY</h1>
@@ -26,6 +25,7 @@ Giải thích một chút về <strong>RAW</strong> cho mọi người hiểu: <
     * <strong>RAW</strong> truyện do team đang thầu/đang thực hiện dù là bản raw hay english hay spanish cũng không được up vào group, hãy tôn trọng tâm huyết của người dịch, đứng làm họ mất hứng.</br>
     <strong>Vì phần này có thể khá khó hiểu với một số bạn chưa biết gì về các khâu dịch truyện nên hãy đọc kĩ, có khó khăn gì thì hỏi lại trước khi đăng bài có liên quan đến nội quy này để tránh vô tình vi phạm và bay màu. </strong></br>
 <strong> => Nội quy sẽ được update nếu cần thiết <= </strong>
+<strong>Kết quả xúc tác hóa học đó là: Red Lily/Scarlet Lily</strong> </br>
 <h1>QUYỀN LỢI</h1>
 - Như mọi người thấy, group mình đặt với chế độ gia đình, thì ai vào đây cũng là thành viên của Kodomo Family </br>
 - Group này của chung nên dù không phải là admin hay người làm chính thức trong team thì các member đều được phép đăng truyện của mình làm vào đây :3
