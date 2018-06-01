@@ -24,7 +24,7 @@ Giải thích một chút về <strong>RAW</strong> cho mọi người hiểu: <
     * <strong>RAW</strong> free được đăng công khai trên site hay trang cá nhân của tác giả thì được quyền up vào group, nhớ để lại link, nguồn,...để làm bằng chứng là chap đó thực sự free và công khai.</br>
     * <strong>RAW</strong> truyện do team đang thầu/đang thực hiện dù là bản raw hay english hay spanish cũng không được up vào group, hãy tôn trọng tâm huyết của người dịch, đứng làm họ mất hứng.</br>
     <strong>Vì phần này có thể khá khó hiểu với một số bạn chưa biết gì về các khâu dịch truyện nên hãy đọc kĩ, có khó khăn gì thì hỏi lại trước khi đăng bài có liên quan đến nội quy này để tránh vô tình vi phạm và bay màu. </strong></br>
-13. Không up bất kì ảnh nào liên quan đến chap hay bộ truyện team thầu cho đến khi team đã đăng chap đó lên group, dù có là ảnh không thoại.
+13. Không up bất kì ảnh nào liên quan đến chap hay bộ truyện team thầu cho đến khi team đã đăng chap đó lên group, dù có là ảnh không thoại.</br>
 <strong> => Nội quy sẽ được update nếu cần thiết <= </strong></br>
 <strong>Kết quả xúc tác hóa học đó là: Red Lily/Scarlet Lily</strong> </br>
 <h1>QUYỀN LỢI</h1>
