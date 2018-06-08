@@ -26,7 +26,6 @@ Giải thích một chút về <strong>RAW</strong> cho mọi người hiểu: <
     <strong>Vì phần này có thể khá khó hiểu với một số bạn chưa biết gì về các khâu dịch truyện nên hãy đọc kĩ, có khó khăn gì thì hỏi lại trước khi đăng bài có liên quan đến nội quy này để tránh vô tình vi phạm và bay màu. </strong></br>
 13. Không up bất kì ảnh nào liên quan đến chap hay bộ truyện team thầu cho đến khi team đã đăng chap đó lên group, dù có là ảnh không thoại.</br>
 <strong> => Nội quy sẽ được update nếu cần thiết <= </strong></br>
-<strong>Kết quả xúc tác hóa học đó là: Red Lily/Scarlet Lily</strong> </br>
 <h1>QUYỀN LỢI</h1>
 - Như mọi người thấy, group mình đặt với chế độ gia đình, thì ai vào đây cũng là thành viên của Kodomo Family </br>
 - Group này của chung nên dù không phải là admin hay người làm chính thức trong team thì các member đều được phép đăng truyện của mình làm vào đây :3
