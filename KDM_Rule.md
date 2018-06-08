@@ -17,7 +17,7 @@ Lưu ý: team mặc định các tài khoản mới tạo thường là clone (t
 8. Không được đăng bài không liên quan đến yuri, GL</br>
 9. Tuyệt đối không hối chap hay đòi hỏi, xin chap, <strong>NHƯNG</strong> có thể đăng một bộ truyện nào đó, nội dung hay, art đẹp, cute, cuốn hút và muốn team thầu.</br>
 10. Không được comment . hay bất cứ cmt nào tương tự vậy</br>
-11. Để tìm các link chap/bộ truyện do kodomo thực hiện thì vào bài ghim tìm, không tìm được thì có thể comment/bình luận để hỏi, không đăng bài làm loãn group</br>
+11. Để tìm các link chap/bộ truyện cũ do kodomo thực hiện thì vào bài ghim tìm, không comment hay đăng bài hỏi, làm trái là bay màu</br>
 12. Quy định về việc up <strong>RAW (chap,ảnh)</strong> truyện:</br>
 Giải thích một chút về <strong>RAW</strong> cho mọi người hiểu: <strong>RAW</strong> là chap truyện bản gốc của tác giả, truyện raw thường giữ nguyên ngôn ngữ gốc (Nhật, Trung, Hàn, Thái,...) tức là chưa được dịch sang English hay Việt hay Spanish,...</br>
     * <strong>RAW</strong> phải tốn tiền để mua thì không được up vào group.</br>
