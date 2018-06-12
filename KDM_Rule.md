@@ -25,6 +25,7 @@ Giải thích một chút về <strong>RAW</strong> cho mọi người hiểu: <
     * <strong>RAW</strong> truyện do team đang thầu/đang thực hiện dù là bản raw hay english hay spanish cũng không được up vào group, hãy tôn trọng tâm huyết của người dịch, đứng làm họ mất hứng.</br>
     <strong>Vì phần này có thể khá khó hiểu với một số bạn chưa biết gì về các khâu dịch truyện nên hãy đọc kĩ, có khó khăn gì thì hỏi lại trước khi đăng bài có liên quan đến nội quy này để tránh vô tình vi phạm và bay màu. </strong></br>
 13. Không up bất kì ảnh nào liên quan đến chap hay bộ truyện team thầu cho đến khi team đã đăng chap đó lên group, dù có là ảnh không thoại.</br>
+14. Môi người chỉ được đăng nhiều nhất 2 bài/ngày để tránh tình trạng loãng group vì members đăng bài liên tục và quá nhiều một lúc. </br>
 <strong> => Nội quy sẽ được update nếu cần thiết <= </strong></br>
 <h1>QUYỀN LỢI</h1>
 - Như mọi người thấy, group mình đặt với chế độ gia đình, thì ai vào đây cũng là thành viên của Kodomo Family </br>
