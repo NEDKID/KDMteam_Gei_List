@@ -16,7 +16,7 @@ Lưu ý: team mặc định các tài khoản mới tạo thường là clone (t
 7. Khi xem xong chap do team up trên group nhớ like, comment "thank you~" (nếu được) để thể hiện lòng cảm kích của mình với người thực hiện chap truyện đó :3 và <strong>KHÔNG ĐƯỢC SHARE LINK RA KHỎI GROUP</strong> </br>
 8. Không được đăng bài không liên quan đến yuri, GL</br>
 9. Tuyệt đối không hối chap hay đòi hỏi, xin chap, <strong>NHƯNG</strong> có thể đăng một bộ truyện nào đó, nội dung hay, art đẹp, cute, cuốn hút và muốn team thầu.</br>
-10. Không được comment . hay bất cứ cmt nào tương tự vậy</br>
+10. Không được comment "." hay "chấm" hay "..." hay bất cứ comment nào tương tự vậy</br>
 11. Để tìm các link chap/bộ truyện cũ do kodomo thực hiện thì vào bài ghim tìm, không comment hay đăng bài hỏi, làm trái là bay màu</br>
 12. Quy định về việc up <strong>RAW (chap,ảnh)</strong> truyện:</br>
 Giải thích một chút về <strong>RAW</strong> cho mọi người hiểu: <strong>RAW</strong> là chap truyện bản gốc của tác giả, truyện raw thường giữ nguyên ngôn ngữ gốc (Nhật, Trung, Hàn, Thái,...) tức là chưa được dịch sang English hay Việt hay Spanish,...</br>
@@ -26,6 +26,7 @@ Giải thích một chút về <strong>RAW</strong> cho mọi người hiểu: <
     <strong>Vì phần này có thể khá khó hiểu với một số bạn chưa biết gì về các khâu dịch truyện nên hãy đọc kĩ, có khó khăn gì thì hỏi lại trước khi đăng bài có liên quan đến nội quy này để tránh vô tình vi phạm và bay màu. </strong></br>
 13. Không up bất kì ảnh nào liên quan đến chap hay bộ truyện team thầu cho đến khi team đã đăng chap đó lên group, dù có là ảnh không thoại.</br>
 14. Mỗi người chỉ được đăng nhiều nhất 2 bài/ngày để tránh tình trạng loãng group vì members đăng bài liên tục và quá nhiều một lúc. </br>
+15. Không nói tục, chửi bậy quá mức cho phép, vừa vừa thôi, đừng thô quá~ :v</br>
 <strong> => Nội quy sẽ được update nếu cần thiết <= </strong></br>
 <h1>QUYỀN LỢI</h1>
 - Như mọi người thấy, group mình đặt với chế độ gia đình, thì ai vào đây cũng là thành viên của Kodomo Family </br>
