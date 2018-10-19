@@ -4,7 +4,7 @@
 Vào cái động này rồi thì cả lũ đều như nhau</br>
 You are now kodomo, we are now kodomo, kodomo everywhere ~~~</br>
 P/s: lầy lội cũng là 1 phần của kodomo</br>
-Lưu ý: team mặc định các tài khoản mới tạo thường là clone (tài khoản dự phòng) nên sẽ không duyệt các tài khoản đó, dù có trả lời đúng, chỉ có các tài khoản facebook dùng từ 2 tháng trở lên mới được duyệt. Nếu có lí do phải dùng tài khoản mới xin vào thì ghi chú thêm ở phần trả lời câu hỏi để admin biết và duyệt</br>
+<strong>Lưu ý:</strong> team mặc định các tài khoản mới tạo thường là clone (tài khoản dự phòng) nên sẽ không duyệt các tài khoản đó, dù có trả lời đúng, chỉ có các tài khoản facebook dùng từ 2 tháng trở lên mới được duyệt. Nếu có lí do phải dùng tài khoản mới xin vào thì ghi chú thêm ở phần trả lời câu hỏi để admin biết và duyệt</br>
 <strong> Team mình dùng công cụ để lọc members và xếp hạng members nên để tránh bay màu do thiếu tương tác chỉ có một cách là đi tương tác thường xuyên </strong>
 <h1>NỘI QUY</h1>
 1. Ở đây các bạn có thể giao lưu với các admin tùy thích</br>
@@ -15,7 +15,7 @@ Lưu ý: team mặc định các tài khoản mới tạo thường là clone (t
 6. Mọi stt có chiều hướng gây war sẽ bị xóa và người gây war thì bay màu </br>
 7. Khi xem xong chap do team up trên group nhớ like, comment "thank you~" (nếu được) để thể hiện lòng cảm kích của mình với người thực hiện chap truyện đó :3 và <strong>KHÔNG ĐƯỢC SHARE LINK RA KHỎI GROUP</strong> </br>
 8. Không được đăng bài không liên quan đến yuri, GL</br>
-9. Tuyệt đối không hối chap hay đòi hỏi, xin chap, <strong>NHƯNG</strong> có thể đăng một bộ truyện nào đó, nội dung hay, art đẹp, cute, cuốn hút và muốn team thầu.</br>
+9. Tuyệt đối không hối chap, hỏi về chap hay đòi hỏi, xin chap, <strong>NHƯNG</strong> có thể đăng một bộ truyện nào đó, nội dung hay, art đẹp, cute, cuốn hút và muốn team thầu.</br>
 10. Không được comment "." hay "chấm" hay "..." hay bất kì comment nào tương tự vậy</br>
 11. Để tìm các link chap/bộ truyện cũ do kodomo thực hiện thì vào 1 trong các bài viết ở phần <strong>công bố</strong>, không comment hay đăng bài hỏi, làm trái là bay màu</br>
 12. Quy định về việc up <strong>RAW (chap,ảnh)</strong> truyện:</br>
@@ -27,6 +27,7 @@ Giải thích một chút về <strong>RAW</strong> cho mọi người hiểu: <
 13. Không up bất kì ảnh nào liên quan đến chap hay bộ truyện team thầu cho đến khi team đã đăng chap đó lên group, dù có là ảnh không thoại.</br>
 14. Mỗi người chỉ được đăng nhiều nhất 2 bài/ngày để tránh tình trạng loãng group vì members đăng bài liên tục và quá nhiều một lúc. </br>
 15. Không nói tục, chửi bậy quá mức cho phép, vừa vừa thôi, đừng thô quá~ :v</br>
+16. Không tự add/bảo kê members ngoài group vào </br>
 <strong> => Nội quy sẽ được update nếu cần thiết <= </strong></br>
 <h1>QUYỀN LỢI</h1>
 - Như mọi người thấy, group mình đặt với chế độ gia đình, thì ai vào đây cũng là thành viên của Kodomo Family </br>
@@ -34,7 +35,6 @@ Giải thích một chút về <strong>RAW</strong> cho mọi người hiểu: <
 - Đăng bằng mọi phương tiện nào mà mấy chế thích </br>
 - * Đăng trực tiếp (nhớ cắt ảnh vì fb hiển thị bé quá, nhìn xong mù lun) </br>
 - * Đăng bằng imgur như team hay làm (đó là app dành cho nhiếp ảnh gia nên mọi ảnh đăng lên đó đều giữ được chất lượng gốc) </br>
-- Members trong group có thể add/thêm bất kì bạn bè/người quen của mình vào group dưới danh là "người bảo lãnh", tức là nếu bạn add bạn bè/người quen đó vào group, bạn phải phổ biến nội quy cho họ, để họ không làm sai điều gì khi vào group, nếu người đó làm sai và bị ban, bạn cũng sẽ ra đi theo người đó và tất nhiên bạn bè/người quen mà bạn add vào sẽ được duyệt thẳng, không cần phải trả lời câu hỏi</br>
 >>>CHÚC CÁC ĐỒNG RÂM CÓ NHỮNG GIÂY PHÚT VUI VẺ, THOẢI MÁI TRONG FAMILY 
 
 <h1>Link page: https://www.facebook.com/Kodomoteamforall/</h1>
