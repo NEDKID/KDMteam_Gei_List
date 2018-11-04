@@ -4,7 +4,9 @@
 Vào cái động này rồi thì cả lũ đều như nhau</br>
 You are now kodomo, we are now kodomo, kodomo everywhere ~~~</br>
 P/s: lầy lội cũng là 1 phần của kodomo</br>
-<strong>Lưu ý:</strong> team mặc định các tài khoản mới tạo thường là clone (tài khoản dự phòng) nên sẽ không duyệt các tài khoản đó, dù có trả lời đúng, chỉ có các tài khoản facebook dùng từ 2 tháng trở lên mới được duyệt. Nếu có lí do phải dùng tài khoản mới xin vào thì ghi chú thêm ở phần trả lời câu hỏi để admin biết và duyệt</br>
+<strong>Lưu ý:</strong></br>
+-> Team mặc định các tài khoản mới tạo thường là clone (tài khoản dự phòng) nên sẽ không duyệt các tài khoản đó, dù có trả lời đúng, chỉ có các tài khoản facebook dùng từ 2 tháng trở lên mới được duyệt. Nếu có lí do phải dùng tài khoản mới xin vào thì ghi chú thêm ở phần trả lời câu hỏi để admin biết và duyệt.</br>
+-> Members bị block khỏi group chỉ được gỡ ban khi biết mình phạm lỗi gì và tự báo cáo với admin để admin xem xét vi phạm đó có nên được dung thứ hay không. </br>
 <strong> Team mình dùng công cụ để lọc members và xếp hạng members nên để tránh bay màu do thiếu tương tác chỉ có một cách là đi tương tác thường xuyên </strong>
 <h1>NỘI QUY</h1>
 1. Ở đây các bạn có thể giao lưu với các admin tùy thích</br>
