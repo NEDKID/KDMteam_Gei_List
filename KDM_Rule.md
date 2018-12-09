@@ -19,7 +19,7 @@ P/s: lầy lội cũng là 1 phần của kodomo</br>
 8. Không được đăng bài không liên quan đến yuri, GL</br>
 9. Tuyệt đối không hối chap, hỏi về chap hay đòi hỏi, xin chap, <strong>NHƯNG</strong> có thể đăng một bộ truyện nào đó, nội dung hay, art đẹp, cute, cuốn hút và muốn team thầu.</br>
 10. Không được comment "." hay "chấm" hay "..." hay bất kì comment nào tương tự vậy</br>
-11. Để tìm các link chap/bộ truyện cũ do kodomo thực hiện thì vào 1 trong các bài viết ở phần <strong>công bố</strong>, không comment hay đăng bài hỏi, làm trái là bay màu</br>
+11. Để tìm các link chap/bộ truyện cũ do kodomo thực hiện thì vào 1 trong các bài viết ở phần <strong>công bố/bài ghim</strong>, không comment hay đăng bài hỏi, làm trái là bay màu</br>
 12. Quy định về việc up <strong>RAW (chap,ảnh)</strong> truyện:</br>
 Giải thích một chút về <strong>RAW</strong> cho mọi người hiểu: <strong>RAW</strong> là chap truyện bản gốc của tác giả, truyện raw thường giữ nguyên ngôn ngữ gốc (Nhật, Trung, Hàn, Thái,...) tức là chưa được dịch sang English hay Việt hay Spanish,...</br>
     * <strong>RAW</strong> phải tốn tiền để mua thì không được up vào group.</br>
