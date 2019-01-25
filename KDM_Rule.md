@@ -1,5 +1,5 @@
 <h1>KDM_RULE</h1>
-<h1>Đây là group kín do Kodomo Team - こども tụi mình lập để phòng hờ lở page chính bị rip</h1>
+<h1>Kodomo Family - こども là group kín do Kodomo Team - こども tụi mình lập để dịch và đăng truyện miễn phí cho các fan YURI, GL</h1>
 <h1>ĐỌC KĨ NẾU KHÔNG MUỐN BAY MÀU</h1>
 Vào cái động này rồi thì cả lũ đều như nhau</br>
 You are now kodomo, we are now kodomo, kodomo everywhere ~~~</br>
@@ -41,3 +41,4 @@ Giải thích một chút về <strong>RAW</strong> cho mọi người hiểu: <
 >>>CHÚC CÁC ĐỒNG DÂM CÓ NHỮNG GIÂY PHÚT VUI VẺ, THOẢI MÁI TRONG FAMILY 
 
 <h1>Link page: https://www.facebook.com/Kodomoteamforall/</h1>
+<h1>Link group: https://www.facebook.com/groups/kodomofamily/</h1>
